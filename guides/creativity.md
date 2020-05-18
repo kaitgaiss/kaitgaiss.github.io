@@ -23,7 +23,6 @@
 - I’m reminded of the way Thoreau described unthinking people in “Civil Disobedience”: as basically dead before their time. If I think I know everything that I want and like, and I also think I know where and how I’ll find it—imagining all of this stretching endlessly into the future without any threats to my identity or the bounds of what I call my self—I would argue that I no longer have a reason to keep living.
 - we are also running the risk of never being surprised, challenged, or changed—never seeing anything outside of ourselves, including our own privilege. And we’re less prone to the encounters with those who turn us upside down and reorganize our universe—those who stand to change us significantly, should we allow it.
 
-
 ## Paying attention.
 - Listening. Being present. Paying attention to people, things.
 - Consider where a life of sustained attention leads.
@@ -73,7 +72,6 @@
 - There are different ways to address a new idea or project. If you take the conservative scientific route, you study the problem in your head or on paper until you are sure there is no chance of failure. However, you have taken so long that the competition has already beaten you to market. The entrepreneurial way is to immediately take a forward step, and if that feels good, take another. If not, step back. Learn by doing, it’s a faster process. 
 - The cure for depression is action. 
 
-
 ## Immerse yourself.
 - Seek inspiration, all the time.
 - Inspiration comes from other people, research.
@@ -87,7 +85,6 @@
 - Bioregionalism teaches us of emergence, interdependence, and the impossibility of absolute boundaries. As physical beings, we are literally open to the world, suffused every second with air from somewhere else; as social beings, we are equally determined by our contexts. If we can embrace that, then we can begin to appreciate our and others’ identities as the emergent and fluid wonders that they are.
 - Most of all, we can open ourselves to those new and previously unimaginable ideas that may arise from our combination, like the lightning that happens between an evanescent cloud and the ever-shifting ground.
 - It also requires humility and openness, because to seek context is already to acknowledge that you don’t have the whole story. And perhaps most important, an ecological understanding takes time. Context is what appears when you hold your attention open for long enough; the longer you hold it, the more context appears.
-
 
 ## Create space.
 - Sit quietly. Listen. Be present. Reduce multitasking because that wears down the brain. Depends on when you’re doing your creative work. Find the time of day that works best for you.
@@ -179,9 +176,11 @@
 - I read this elsewhere and it’s relevant here, need to find the original quote: It’s a sculptor who knows there is something hidden within the marble, it’s her job to find it and excavate it. 
 - Personal note: You’re just uncovering stuff that’s already there. That takes the pressure off it. You just have to be open and paying attention. 
 
-
 ## Take care of yourself.
 - Simple understanding that whatever is bad for you is probably bad for your work.
+- I’m suggesting that we protect our spaces and our time for non-instrumental, noncommercial activity and thought, for maintenance, for care, for conviviality.
+- As John Muir once said, “Longest is the life that contains the largest amount of time-effacing enjoyment.”
+- But if you do, make it “self-care” in the activist sense that Audre Lorde meant it in the 1980s, when she said that “caring for myself is not self-indulgence, it is self preservation, and that is an act of political warfare.”
 
 ## Take a fucking break.
 - When your head is full, stop. Take a break. Fuck around. Don’t do anything related to your project, because this is when the really hardworking part of your brain goes into high gear. Go for a walk or a run. These low cognitive load activities are pretty amazing at creating the space you need for your brain to make connections. Relax, live, absorb.
@@ -259,6 +258,9 @@
 - What is sacred is the time that you spend working on the project, and what that time does to expand your imagination, and what that expanded imagination does to transform your life. 
 - A master in the art of living draws no sharp distinction between his work and his play; his labor and his leisure; his mind and his body; his education and his recreation. He hardly knows which is which. He simply pursues his vision of excellence through whatever he is doing, and leaves others to determine whether he is working or playing. To himself, he always appears to be doing both.
 - Working satisfied the urge to do something both useful and pleasurable, to make beautiful functional climbing tools that employees needed to pursue their own climbing.
+- To stand apart is to look at the world (now) from the point of view of the world as it could be (the future), with all of the hope and sorrowful contemplation that this entails. For someone who cannot otherwise live with the terms of her society, the third space can provide an important if unexpected harbor.
+- Difference is strength, a prerequisite for creativity that allows individual growth and communal political innovation. Lorde’s words are especially resonant now, when our politics play out on platforms ill designed for difference, plurality, and encounter.
+
 
 
 
