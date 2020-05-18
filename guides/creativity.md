@@ -5,6 +5,11 @@
 - Don’t let your fear control you. Don’t stop yourself. 
 - Enjoy your work. Stay as light and unburdened as possible. Taking yourself too seriously starts to close you up. The results of your work don’t have much to do with you. You can only be in charge of producing the work yourself. 
 - The essential ingredients for creativity remain exactly the same for everyone: courage, enchantment, permission, persistence, and trust. 
+- Living a life that is driven more strongly by curiosity than fear. 
+- A creative life is an amplified life. It’s a bigger life, a happier life, an expanded life, and a hell of a lot more interesting life. Living in this manner — continually and stubbornly bringing forth the jewels that are hidden within you — is a fine art, in and of itself. 
+- I decided that I would need to build an expansive enough interior life that my fear and my creativity could peacefully coexist. I make all that space for fear. It seems to me that the less I fight my fear, the less it fights back. If I can relax, fear relaxes too. 
+- ENJOY IT. Work had to be enjoyable on a daily basis.
+- Treat work as play. Live a rich and rounded life. 
 - The art comes from a creative imagination which is working hard and having fun.
 - I have many interests, but only a few that are deep enough to power novels. These deep interests (I won’t quite call them obsessions) include how difficult it is—perhaps impossible!—to close Pandora’s technobox once it’s open. 
 - the question of why, if there is a God, such terrible things happen
@@ -30,7 +35,7 @@
 - To me, the only habit worth “designing for” is the habit of questioning one’s habitual ways of seeing, and that is what artists, writers, and musicians help us to do.
 - My dad, a musician for much of his life, says that this is actually the definition of good music: music that “sneaks up on you” and changes you. And if we’re able to leave room for the encounters that will change us in ways we can’t yet see, we can also acknowledge that we are each a confluence of forces that exceed our own understanding.
 - Surprised, challenged, changed. And we’re less prone to the encounters with those who turn us upside down and reorganize our universe—those who stand to change us significantly, should we allow it.
-	- ^ Being open and receptive. 
+	- ^ Being open and receptive.
 - We live in complex times that demand complex thoughts and conversations — and those, in turn, demand the very time and space that is nowhere to be found.
 - Consider where a life of sustained attention leads. It leads to awareness, not only of how lucky I am to be alive, but to ongoing patterns of cultural and ecological devastation around me — and the inescapable part that I play in it, should I choose to recognize it or not. Simple awareness is the seed of responsibility.
 - One thing I have learned about attention is that certain forms of it are contagious. When you spend enough time with someone who pays close attention to something, you inevitably start to pay attention to some of the same things. 
@@ -113,8 +118,14 @@
 - SOLITUDE - one needs to remove herself in order to be able to think critically.
 - we will require new kinds of alliances and formations, which will further require periods both of solitude and of intense connection and communication. But how can we do that when our platforms for “connection” and expression detract from the attention to place and time that we need, simultaneously eroding the contexts that would allow new strategies to sharpen and flourish?
 - I THINK OFTEN about how much time and energy we use thinking up things to say that would go over well with a context-collapsed crowd—not to mention checking back on how that crowd is responding. This is its own form of “research,” and when I do it, it feels not only pathetic but like a waste of energy.
+- The last thing you need is further distraction. Find when you’re in a “scarcity” state of mind. 
+- Lose track of time and space and self. For most of history, people just made things, and they didn’t make such a big freaking deal about it. Take you out of yourself.
+- Every time you express a complaint about how difficult and tiresome it is to be creative, inspiration takes another step away from you, offended. Start telling yourself that you enjoy your work. We need you to stay as light and unburdened as possible to keep you creating. Because of my deep and lifelong conviction that the results of my work don’t have much to do with me, I can only be in charge of producing the work itself. Taking yourself too seriously starts to close things up. My creative expression must be the most important thing in the world to me (if I am to live artistically), and it also must not matter at all (if I am to live sanely). 
 
 ## Show the fuck up.
+- My job is to work hard and stay focused. 
+- In the end, it’s all about the work, isn’t it?
+- Show up for your work day after day after day after day.
 - It’s a simple and generous rule of life that whatever you practice, you’ll improve at. Just stay with the process and don’t panic. We’re meant to engage with inspiration, and inspiration wants to work with us. 
 - Keep it about the work. Focus on the work itself. Make that the thing. Not how successful you are or if your profile looks good, or whatever else. Focus on what interests you and make it about that. 
 - Practice the art, always reminding yourself that your job is to say what you see, and then to get on with your story.
@@ -138,6 +149,7 @@
 ## Creativity is a muse. Treat it like one.
 - Give your creativity a name or something. Make it be a muse if that makes you feel less pressure. You’re trying to make yourself as receptive and open to the muse as possible. Keeping your mind engaged. If you’re in service to this other being this other entity, rather than responsible to yourself, I find it eases the pressure. This outside force wants to work through you, you just need to let it. It’s not about you failing to live up to your own god damn potential. 
 - It’s a subtle but important distinction between being a genius, and having a genius. When artists are burdened with the label of “genius” they run the risk of losing the ability to take themselves lightly, or to create freely. Rather than being a genius, the Greeks and Romans both believed in the idea of an external daemon of creativity, a sort of house elf you lived within the walls of your home and aided you in your efforts. The Romans didn’t believe an exceptionally gifted person was a genius, they believed they had a genius.
+- Try to present yourself to your creativity as if you are sexy — as if you are somebody worth spending time with. 
 - Take you out of yourself. 
 - ^^ I am so obsessed with the above and I’ve heard others describe it as such
 - Present yourself well. Get dressed to do the work. 
@@ -192,7 +204,7 @@
 - In the very same essay, he mentions the importance of having a close friend to have real and substantive conversations with.
 - The book you are reading—as I would guess is the case with most books—is the result of many conversations I’ve had over the course of many years, in my case with both humans and nonhumans. Many of them happened while I was writing this, and all of them changed my mind. Now, as you read it, this book forms a conversation with you as well.
 - Meanwhile, countless examples from history and ecological science teach us that a diverse community with a complex web of interdependencies is not only richer but more resistant to takeover. When I read Schulman’s The Gentrification of the Mind, I picture the difference between a permaculture farm and a commercial corn farm that could be devastated by a single parasite.
-	- Personal Note: DIVERSITY OF SOURCES, VOICES, IDEAS THAT YOU CAN BUILD ON AND MERGE WITH OTHER IDEAS INTO SOMETHING NEW 
+	- Personal Note: DIVERSITY OF SOURCES, VOICES, IDEAS THAT YOU CAN BUILD ON AND MERGE WITH OTHER IDEAS INTO SOMETHING NEW
 - I don’t bring my phone or any device during the run. I develop ideas locally, and reserve them (stage them, as in github terminology) and share them once I’m ready for more encounters.
 - When I try to imagine a sane social network it is a space of appearance: a hybrid of mediated and in-person encounters, of hours-long walks with a friend, of phone conversations, of closed group chats, of town halls.
 
@@ -215,6 +227,8 @@
 - There is this cycle. Some hybrid reaction is needed. We have to be able to do both: to contemplate and participate, to leave and always come back, where we are needed.
 	- Thoreau’s ultimate hope was that if enough individual people decided at once to exercise their moral judgment instead of continuing to play the game, then the game might actually change for once.
 	- This collective alignment emerges as a product of intense individual self-discipline—like a crowd of Thoreaus refusing in tandem. In so doing, the “third space”—not of retreat, but of refusal, boycott, and sabotage—can become a spectacle of noncompliance that registers on the larger scale of the public.
+- Just stay with the process and don’t panic. You’re supposed to be there - we are meant to engage with inspiration, and inspiration wants to work with us.
+* 
 
 
 ## Curation as a creative act.
@@ -232,5 +246,15 @@
 - State of uninterrupted marvel 
 - I knew, not because Owen stopped practicing, but because he was practicing only during the periods Mr. Bowie had set for him: half an hour after school four days a week, plus an hour on the weekends. Owen mastered the scales and the notes—nothing wrong with his memory, his lungs, or his eye-hand coordination—but we never heard him taking off, surprising himself with something new, blissing himself out. And as soon as his practice time was over, it was back into the case with the horn, and there it stayed until the next lesson or practice-time.
 - What this suggested to me was that when it came to the sax and my son, there was never going to be any real play-time; it was all going to be rehearsal. That’s no good. If there’s no joy in it, it’s just no good. It’s best to go on to some other area, where the deposits of talent may be richer and the fun quotient higher. Talent renders the whole idea of rehearsal meaningless; when you find something at which you are talented, you do it (whatever it is) until your fingers bleed or your eyes are ready to fall out of your head. Even when no one is listening (or reading, or watching), every outing is a bravura performance, because you as the creator are happy. Perhaps even ecstatic. That goes for reading and writing as well as for playing a musical instrument, hitting a baseball, or running the four-forty.
+- I knew Winifred back in the 1990s, in Greenwich Village. I first met her at her ninetieth birthday party, which was quite a wild bash. She was a friend of a friend of mine (a guy who was in his twenties; Winifred had friends of all ages and backgrounds). Winifred was a bit of a luminary around Washington Square back in the day. She and her late husband (a scientist) had spent their vacations chasing typhoons and hurricanes all over the world, just for fun. She kind of was a hurricane herself. Winifred was the most vividly alive woman I had ever met in my young life, so one day, looking for inspiration, I asked her, “What’s the best book you’ve ever read?” She said, “Oh darling. I could never narrow it down to just one book, because so many books are important to me. But I can tell you my favorite subject. Ten years ago, I began studying the history of ancient Mesopotamia, and it became my passion, and let me tell you — it has totally changed my life."
+- If you devote yourself to anything diligently for ten years, you’ll be an expert. 
+- If you want to live a contented creative life, you do not want to cultivate either one of those traits (laziness and perfectionism).
+- Be satisfied with the smallest progress, and treat the outcome of it all as unimportant. 
+- Through the mere act of creating something, anything — you might inadvertently produce work that is magnificent, eternal, or important. 
+- If I am not actively creating something, then I am probably actively destroying something (myself, a relationship, or my own piece of mind). 
+- We all need something that helps us to forget ourselves for awhile. 
+- Nobody was ever thinking of you, anyhow. Go be whoever you want to be then. Do whatever you want to do. Pursue whatever fascinates you and brings you to life.
+- Do what you love to do, and do it with both seriousness and lightness.
+- What is sacred is the time that you spend working on the project, and what that time does to expand your imagination, and what that expanded imagination does to transform your life. 
 
 
