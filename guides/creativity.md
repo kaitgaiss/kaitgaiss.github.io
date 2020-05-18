@@ -58,8 +58,6 @@
 - What becomes clear in Barassi’s analysis is that thought and deliberation require not just incubation space (solitude and/or a defined context) but incubation time. My experience suggests that these challenges apply not only to activists but also to an individual trying to communicate with others, or just maintain coherent trains of thought.
 - Presented with information in the form of itemized bits and sensationalized headlines—each erased by the arrival of new items at the top of the feed—we lose that which was spatially and temporally adjacent to that information.
 
-
-
 ## Getting started is everything.
 - Take the first practical step.
 - You don’t have to know exactly where it is you’re going. You’ll figure that out much better if you get started than if you try to plan it all out. 
@@ -72,6 +70,9 @@
 - Keep a pen handy. Inspiration will smile. When you see the idea again, your mind will be in a new location and pick up where it left off or tell you to start over. This process of idea construction brings together strong creative solutions that hold up over time.
 - Give yourself a deadline and stick to it no matter what — that’s the secret ingredient. 
 - The scariest moment is always just before you start. After that, things can only get better.
+- There are different ways to address a new idea or project. If you take the conservative scientific route, you study the problem in your head or on paper until you are sure there is no chance of failure. However, you have taken so long that the competition has already beaten you to market. The entrepreneurial way is to immediately take a forward step, and if that feels good, take another. If not, step back. Learn by doing, it’s a faster process. 
+- The cure for depression is action. 
+
 
 ## Immerse yourself.
 - Seek inspiration, all the time.
@@ -228,7 +229,7 @@
 	- Thoreau’s ultimate hope was that if enough individual people decided at once to exercise their moral judgment instead of continuing to play the game, then the game might actually change for once.
 	- This collective alignment emerges as a product of intense individual self-discipline—like a crowd of Thoreaus refusing in tandem. In so doing, the “third space”—not of retreat, but of refusal, boycott, and sabotage—can become a spectacle of noncompliance that registers on the larger scale of the public.
 - Just stay with the process and don’t panic. You’re supposed to be there - we are meant to engage with inspiration, and inspiration wants to work with us.
-* 
+\* 
 
 
 ## Curation as a creative act.
@@ -256,5 +257,8 @@
 - Nobody was ever thinking of you, anyhow. Go be whoever you want to be then. Do whatever you want to do. Pursue whatever fascinates you and brings you to life.
 - Do what you love to do, and do it with both seriousness and lightness.
 - What is sacred is the time that you spend working on the project, and what that time does to expand your imagination, and what that expanded imagination does to transform your life. 
+- A master in the art of living draws no sharp distinction between his work and his play; his labor and his leisure; his mind and his body; his education and his recreation. He hardly knows which is which. He simply pursues his vision of excellence through whatever he is doing, and leaves others to determine whether he is working or playing. To himself, he always appears to be doing both.
+- Working satisfied the urge to do something both useful and pleasurable, to make beautiful functional climbing tools that employees needed to pursue their own climbing.
+
 
 
