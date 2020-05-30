@@ -175,6 +175,8 @@
 - Personal note: It’s not bringing something to life, it’s unearthing it. 
 - I read this elsewhere and it’s relevant here, need to find the original quote: It’s a sculptor who knows there is something hidden within the marble, it’s her job to find it and excavate it. 
 - Personal note: You’re just uncovering stuff that’s already there. That takes the pressure off it. You just have to be open and paying attention. 
+- Ideas need supporters, carriers, and executers to become real. 
+* 
 
 ## Take care of yourself.
 - Simple understanding that whatever is bad for you is probably bad for your work.
@@ -235,6 +237,19 @@
 - It’s not always about it being super original. You can build on the work and ideas of others if you have something new and fresh to contribute to it
 - Combinatory play - the act of opening up one mental channel by dabbling in another. 
 - Doing nothing is an antidote to the rhetoric of growth. In the context of health and ecology, things that grow unchecked are often considered parasitic or cancerous. Yet we inhabit a culture that privileges novelty and growth over the cyclical and the regenerative. Our very idea of productivity is premised on the idea of producing something new, whereas we do not tend to see maintenance and care as productive in the same way.
+- My ultimate hope for this book is that someone — maybe it’s you — finds these ideas worth engaging with and building on. And from that collaboration between your ideas, my ideas, and the many shoulders these ideas stand on, a better way of living becomes possible…
+
+## Privilege. 
+- People move through a series of needs in their lives, and that each need is a stepping stone onto the next (personal note — how do we accomplish this at a societal level)
+	- Physiological needs (food, water, shelter)
+	- Safety (health, physical, financial)
+	- Love (family, friendships, belonging)
+	- Esteem (the drive to achieve, live meaningfully, be recognized)
+	- Self-actualization (“to become everything that one is capable of becoming”)
+-  If one of these needs isn’t met, a person would be unable to move forward. They wouldn’t even be able to see the next step.
+- “If all the needs are unsatisfied, and the organism is then dominated by the physiological needs, all other needs may become simply non-existent or be pushed into the background. It is then fair to characterize the whole organism by saying simply that it is hungry, for consciousness is almost completely preempted by hunger…The urge to write poetry, the desire to acquire an automobile, the interest in American history, the desire for a new pair of shoes are, in the extreme case, forgotten or become of secondary importance.”
+-  If a person feels unsafe, pursing love or esteem are very difficult, and in some cases, impossible. If a person is sick or has significant financial problems, life is primarily about getting well and out of the red. 
+- Once a need is satisfied, it vanishes into the background. 
 
 ## Ignore everything.
 
