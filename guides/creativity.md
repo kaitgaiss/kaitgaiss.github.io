@@ -107,6 +107,12 @@
 - To always look at what’s happening and not to look away from it.
 - Paradoxically, it is the abstract rules we invent to limit and focus our attention that give us the experience of untrammeled freedom. 
 - To change personality means to learn new patterns of attention. To look at different things, and to look at them differently; to learn to think new thoughts, have new feelings about what we experience.
+- referencing How to Have a Good Day: disciplines from anthropology to education, behavioral economics to family counseling, similarly suggest that the skillful management of attention is the sine qua non of the good life and the key to improving virtually every aspect of your experience.
+	- Her curiosity piqued, Gallagher set out to better understand the role that attention—that is, what we choose to focus on and what we choose to ignore—plays in defining the quality of our life.
+	- that her commitment to focus on what was good in her life—“movies, walks, and a 6:30 martini”—worked surprisingly well.
+	- “Who you are, what you think, feel, and do, what you love—is the sum of what you focus on.”
+	- ignore the negative and savor the positive.
+
 
 ## Getting started is everything.
 - Take the first practical step.
@@ -131,7 +137,7 @@
 - Don’t get ready, get started! 
 - Less is more. Put a dot on the ideas you could explore within the next 2 hours. Or, pick an idea you could prototype by the end of the week.
 - Starting small gets you from a state of rest into a state of motion.
-* 
+\* 
 
 ## Immerse yourself.
 - Seek inspiration, all the time.
@@ -157,7 +163,10 @@
 - Life is nothing more than a stream of experiences - the more widely and deeply you swim in it, the richer your life will be. 
 - Don’t wait for the proverbial apple to fall on your head. Go out in the world and proactively seek experiences that will spark creative thinking. Interact with experts, immerse yourself in unfamiliar environments, and role-play customer scenarios. Inspiration is field by a deliberate, planned course of action.
 - How can you increase your deal flow of new ideas? Take a class? Read some unusual magazines or blogs? Listen to new music? Take a different route to work? Have coffee with someone who can teach you something new? Constantly seek out new sources of information. 
-* 
+- Expose yourself to ideas in hubs on a regular basis, but maintain a spoke in which to work deeply on what you encounter.
+	- Brattain and Bardeen worked together during this period in a small lab, often side by side, pushing each other toward better and more effective designs.
+	- Brattain would concentrate intensely to engineer an experimental design that could exploit Bardeen’s latest theoretical insight; then Bardeen would concentrate intensely to make sense of what Brattain’s latest experiments revealed, trying to expand his theoretical framework to match the observations.
+	- Therefore, the hub-and-spoke model provides a crucial template. Separate your pursuit of serendipitous encounters from your efforts to think deeply and build on these inspirations. You should try to optimize each effort separately, as opposed to mixing them together into a sludge that impedes both goals.
 
 ## Create space.
 - Sit quietly. Listen. Be present. Reduce multitasking because that wears down the brain. Depends on when you’re doing your creative work. Find the time of day that works best for you.
@@ -207,12 +216,29 @@
 - You have to concentrate on one thing at a time, I think. But, you know, I can do two or three things in one day.
 - 4 things that can inhibit personal creativity — Some of us are exhausted by too many demands. Or, we easily get distracted and have trouble learning to protect and channel whatever energy we have. There’s laziness, or lacking discipline for controlling the flow of energy. And finally, there’s not knowing what to do with the energy one has. 
 	- To free up creative energy, we need to let go and divert some attention from the pursuit of the predictable goals and genes and memes have programmed in our minds and use it instead to explore the world around us on its own terms.
+- Carl Jung building a retreat in the woods where he would retire to think. Jung would rise at seven a.m., Currey reports, and after a big breakfast he would spend two hours of undistracted writing time in his private office. His afternoons would often consist of meditation or long walks in the surrounding countryside.
+	- ^ Hell yeah, this sounds GREAT. 
+	- Jung would retire to bed by ten p.m. “The feeling of repose and renewal that I had in this tower was intense from the start,” he said.
+	- Jung, by contrast, sought this elimination only during the periods he spent at his retreat. The rest of Jung’s time was spent in Zurich, where his life was anything but monastic: He ran a busy clinical practice that often had him seeing patients until late at night; he was an active participant in the Zurich coffeehouse culture; and he gave and attended many lectures in the city’s respected universities.
+	- Jung’s approach is what I call the bimodal philosophy of deep work. This philosophy asks that you divide your time, dedicating some clearly defined stretches to deep pursuits and leaving the rest open to everything else.
+	- This division of time between deep and open can happen on multiple scales. For example, on the scale of a week, you might dedicate a four-day weekend to depth and the rest to open time.
+	- Similarly, on the scale of a year, you might dedicate one season to contain most of your deep stretches (as many academics do over the summer or while on sabbatical).
+	- people will usually respect your right to become inaccessible if these periods are well defined and well advertised, and outside these stretches, you’re once again easy to find.
+- “If I organize my life in such a way that I get lots of long, consecutive, uninterrupted time-chunks, I can write novels. [If I instead get interrupted a lot]() what replaces it? Instead of a novel that will be around for a long time… there is a bunch of e-mail messages that I have sent out to individual persons.”
+- I build my days around a core of carefully chosen deep work, with the shallow activities I absolutely cannot avoid batched into smaller bursts at the peripheries of my schedule. Three to four hours a day, five days a week, of uninterrupted and carefully directed concentration, it turns out, can produce a lot of valuable output.
+- ruthlessly culling the shallow and painstakingly cultivating the intensity of my depth.
+- This philosophy argues that the easiest way to consistently start deep work sessions is to transform them into a simple regular habit. The goal, in other words, is to generate a rhythm for this work that removes the need for you to invest energy in deciding if and when you’re going to go deep.
+- He made a rule that deep work needed to happen in ninety-minute chunks
+- He made a rule that he would wake up and start working by five thirty every morning. He would then work until seven thirty, make breakfast, and go to work already done with his dissertation obligations for the day.
+	- By supporting deep work with rock-solid routines that make sure a little bit gets done on a regular basis, the rhythmic scheduler will often log a larger total number of deep hours per year.
+- Personal note: this could be a new section, on creating rules and routines for yourself. Making creativity a thing that you just do. 
+	- How you’ll work once you start to work. Your ritual needs rules and processes to keep your efforts structured. For example, you might institute a ban on any Internet use, or maintain a metric such as words produced per twenty-minute interval to keep your concentration honed. Without this structure, you’ll have to mentally litigate again and again what you should and should not be doing during these sessions and keep trying to assess whether you’re working sufficiently hard. These are unnecessary drains on your willpower reserves.
 
 ## Give yourself a deadline.
 - PN: I have honestly never done this before when it comes to my creative work. I hate deadlines. But I keep hearing it’s a useful forcing function for producing work, and here I am having produced nothing, so why not try it? I’ve also experienced the effects of having a very clear deadline and audience for a thing. When I’ve needed to prep a talk I’m giving for work, my thinking becomes clearer, I’m more engaged, and more likely to think of that thing that is going to refine my thinking even more. Jenny Odell says that if it wasn’t for the fact that she needed to prep a talk for EYEO, How to Do Nothing would have never happened. Deadlines might secretly rule. Also, prompts! Give yourself prompts and things to think and write about. 
 	- Monthly competition amongst students. Every month, a new set of problems was published in the intramural math journal, and the students discussed and debated them at length in their free time.
 - What creative project could you tackle by focusing on it for half an hour each day before work?
-* 
+- Roosevelt dashes leverage artificial deadlines to help you systematically increase the level you can regularly achieve—providing, in some sense, interval training for the attention centers of your brain.
 
 ## Show the fuck up.
 - My job is to work hard and stay focused. 
@@ -252,8 +278,7 @@
 		- The activity becomes autotelic - in many ways, the secret to a happy life is to learn and to get flow from as many of the things we have to do as possible. 
 	- Still deeply involved in tasks that are exciting and rewarding.
 	- I always try to make the most important task the one that I am working on. 
-		\* 
-		\* 
+	- Seinfeld began his advice to Isaac with some common sense, noting “the way to be a better comic was to create better jokes,” and then explaining that the way to create better jokes was to write every day. Seinfeld continued by describing a specific technique he used to help maintain this discipline. He keeps a calendar on his wall. Every day that he writes jokes he crosses out the date on the calendar with a big red X. “After a few days you’ll have a chain,” Seinfeld said. “Just keep at it and the chain will grow longer every day. You’ll like seeing that chain, especially when you get a few weeks under your belt. Your only job next is to not break the chain.”
 
 ## Creativity is a muse. Treat it like one.
 - Give your creativity a name or something. Make it be a muse if that makes you feel less pressure. You’re trying to make yourself as receptive and open to the muse as possible. Keeping your mind engaged. If you’re in service to this other being this other entity, rather than responsible to yourself, I find it eases the pressure. This outside force wants to work through you, you just need to let it. It’s not about you failing to live up to your own god damn potential. 
@@ -334,6 +359,17 @@
 - Our minds make unlikely connections between ideas, memories, and experiences when we’re at rest and not focused on a specific task. 
 - All truly great thoughts are conceived by walking. 
 - Engage relaxed attention: Flashes of insight often come when your mind is relaxed and not focused on completing a specific task , allowing the mind to make new connections between seemingly unrelated ideas.
+- At the end of the workday, shut down your consideration of work issues until the next morning—no after-dinner e-mail check, no mental replays of conversations, and no scheming about how you’ll handle an upcoming challenge; shut down work thinking completely. If you need more time, then extend your workday, but once you shut down, your mind must be left free to encounter Kreider’s buttercups, stink bugs, and stars.
+	- This strategy argues that you should follow Kreider’s lead by injecting regular and substantial freedom from professional concerns into your day, providing you with the idleness paradoxically required to get (deep) work done.
+	- In other words, to actively try to work through these decisions will lead to a worse outcome than loading up the relevant information and then moving on to something else while letting the subconscious layers of your mind mull things over.
+	- Any work you do fit into the night, therefore, won’t be the type of high-value activities that really advance your career; your efforts will instead likely be confined to low-value shallow tasks (executed at a slow, low-energy pace). By deferring evening work, in other words, you’re not missing out on much of importance.
+	- To succeed with this strategy, you must first accept the commitment that once your workday shuts down, you cannot allow even the smallest incursion of professional concerns into your field of attention. This includes, crucially, checking e-mail, as well as browsing work-related websites.
+	- In more detail, this ritual should ensure that every incomplete task, goal, or project has been reviewed and that for each you have confirmed that either (1) you have a plan you trust for its completion, or (2) it’s captured in a place where it will be revisited when the time is right.
+		- PN: Maybe a section on “I have a day job, how can I be creative?”
+- Having a casual conversation with a friend, listening to music while making dinner, playing a game with your kids, going for a run—the types of activities that will fill your time in the evening if you enforce a work shutdown—play the same attention-restoring role as walking in nature.
+- Only the confidence that you’re done with work until the next day can convince your brain to downshift to the level where it can begin to recharge for the next day to follow.
+- regularly resting your brain improves the quality of your deep work. When you work, work hard. When you’re done, be done.
+* 
 
 ## Share your work.
 - Share your stuff and show your work to people around you.
@@ -372,10 +408,10 @@
 - They all see themselves as primarily synthesizers. They compare what they do to the work of a detective or an explorer. 
 - On one level I feel like an extraterrestrial. I’m visiting here for a while. And I’m also in human form. I’m very emotionally attached to the species. And so I have incarnated myself at this time. Abut I have also an infinite aspect to myself. It. All kind of hangs together quite easily for me. It sounds flippant, but the thing is that this is a spirituous practice for me. 
 - I’m thinking all the time about the different metaphors we use and how they determine our understanding of how reality works.
-\* 
 
 ## Hone your process.
 - Building a routine.
+	- To build your working life around the experience of flow produced by deep work is a proven path to deep satisfaction.
 - Your schedule—in at about the same time every day, out when your thousand words are on paper or disk—exists in order to habituate yourself, to make yourself ready to dream just as you make yourself ready to sleep by going to bed at roughly the same time each night and following the same ritual as you go.
 - In both writing and sleeping, we learn to be physically still at the same time we are encouraging our minds to unlock from the humdrum rational thinking of our daytime lives.
 - Your job is to make sure the muse knows where you’re going to be every day from nine ‘til noon or seven ‘til three. If he does know, I assure you that sooner or later he’ll start showing up, chomping his cigar and making his magic.
@@ -401,6 +437,11 @@
 - Find out what you like and hate about life. Creative individuals are in very close touch with their emotions. They always know the reason for what it is they’re doing, and they are sensitive to pain, to boredom, to joy, to interest, and to other emotions. The first thing is to keep a careful record of what you did each day and how you felt about it. The first step toward self-knowledge involves having a clear idea of what you spend your life doing and how you feel while doing it.
 - Start doing more of what you love, less of what you hate. The only way to stay creative is to oppose the wear and tear of existence with techniques that organize time, space, and activity to your advantage. It is much easier to be creative when you maximize optimal experiences in everyday life. 
 - The domain of personal life consists of the rules that constrain psychic energy, the habits and practices that define what we do day in, day out. How we dress, how we work, how we conduct our relationships define this domain, and if we can improve it, the quality of life as a whole is improved.
+- the batching of hard but important intellectual work into long, uninterrupted stretches.
+- If anyone asks me to be on a committee for admissions, “no,” I tell them: I’m irresponsible.
+	- Personal note: the gist being, don’t get sucked up into extracurriculars. Note: this is more about being productive than being creative, although having the time and space to be creative does go hand in hand. 
+	- Email is a wonderful thing for people whose role in life is to be on top of things. But not for me; my role is to be on the bottom of things. What I do takes long hours of studying and uninterruptible concentration.
+	- his administrative assistant will sort through any letters arriving at that address and put aside those that she thinks are relevant. Anything that’s truly urgent she’ll bring to Knuth promptly, and everything else he’ll handle in a big batch, once every three months or so.
 
 ## Where ideas come from.
 - Usually insights tend to come to prepared minds, that is, to those who have thought long and hard about a given set of problematic issues. There are 3 main sources from which problems typically arise:
@@ -494,6 +535,8 @@
 - Schools generally fail to teach how exciting, how mesmerizingly beautiful science or mathematics can be; they teach the routine of literature or history rather than the adventure.
 - You must have an obsession. You must always have too little time instead of too much. 
 - You need to recognize patterns, identify themes, and find meaning in all that you’ve seen, gathered, and observed. Translate what you’ve uncovered in research into actionable frameworks and principles. Reframe the problem and choose where to focus your energy. 
+- Once your brain has become accustomed to on-demand distraction, Nass discovered, it’s hard to shake the addiction even when you want to concentrate. To put this more concretely: If every moment of potential boredom in your life—say, having to wait five minutes in line or sit alone in a restaurant until a friend arrives—is relieved with a quick glance at your smartphone, then your brain has likely been rewired to a point where, like the “mental wrecks” in Nass’s research, it’s not ready for deep work—even if you regularly schedule time to practice this concentration.
+
 
 
 
