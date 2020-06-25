@@ -233,6 +233,27 @@
 	- By supporting deep work with rock-solid routines that make sure a little bit gets done on a regular basis, the rhythmic scheduler will often log a larger total number of deep hours per year.
 - Personal note: this could be a new section, on creating rules and routines for yourself. Making creativity a thing that you just do. 
 	- How you’ll work once you start to work. Your ritual needs rules and processes to keep your efforts structured. For example, you might institute a ban on any Internet use, or maintain a metric such as words produced per twenty-minute interval to keep your concentration honed. Without this structure, you’ll have to mentally litigate again and again what you should and should not be doing during these sessions and keep trying to assess whether you’re working sufficiently hard. These are unnecessary drains on your willpower reserves.
+- Meanwhile, a study of Microsoft employees found that after they were interrupted by an email, it took them fifteen minutes to fully regain their train of thought, whether they replied to the email or not.
+	- BATCH YOUR TASKS, ZONE YOUR DAY
+	- The first implication of the research is that you can work fewer hours, and work less hard during those hours, by batching your tasks more effectively. By batching, I mean grouping together similar tasks, so you spend less time and energy switching between different types of activity.
+		- knowing that he has dedicated time to tackle his inbox twice a day makes it far easier for him to focus on his other tasks in between, Anthony says, allowing him to reap the cognitive and emotional benefits of singletasking throughout his day.
+		- Batch your tasks into different types of work. What types of tasks do you have to do today? Which to-dos fit into which category? Here are some groupings you might try: • In-depth thinking or creative work • Responding to emails and messages • Reading and researching • Meetings (virtual or in-person) • Personal projects • Administrative tasks
+		- The aim is to do less zigzagging across different tasks, with less jumping from writing a document to answering an email to picking up the phone. If you do nothing else, create one zone for more in-depth thinking/creating, and one or two zones to crank through your messages. Give your biggest and best chunk of time to a task that needs deeper thinking, something that you know will take time to get into.
+		- PN: Also, I’m pretty sure this is where Cal Newport got his idea for shallow and batching. He references her book. 
+	- Turn off alerts.
+	- So when you need to do some focused work, close your email program entirely. Close your browser, or at least the tabs you’re not using.
+	- Store stray thoughts in a “parking lot.” Even when you’re doing your best to focus on one task, you may find that other thoughts pop into your mind as you’re working, and some of them are too valuable to lose. Rather than using up mental space trying to hold on to these stray sparks, or being drawn into exploring them, get into the habit of immediately recording them (maybe on a sticky note or in a voice memo) so that you know you can come back to them when the time is right.
+		- PN: I’ve started using Things for this, and it’s been really helpful. Sometimes I’m not anywhere close to a device though, in which case, I just jot them down on whatever spare piece of paper I can find. Not the most effective solution, but at least I get them down. 
+	- TIMERS ARE EVERYTHING. I feel so much more focused and “on the clock” when I have a timer going. 
+	- Instead, when we’ve gone too long without a break, our automatic system takes over. And that means we tend to reach for the easiest payoff—the quick solution, the black-and-white answer, the short-term boost, the standard option, or the status quo—rather than the choice that’s necessarily best.
+		- Researchers are finding that when we allow our brains to take a break from a task, they appear to do important work in encoding and consolidating the information that we’ve just absorbed—and this reflection time results in enhanced learning and insight.
+			- PN: integrating + processing
+		- All of this means we make better use of our mental energy if we carve out a little time to recharge and reflect during the day, rather than pushing ourselves from appointment to appointment without any breathing space in between.
+		- But what stayed with me most was the idea that success was determined not only by the car’s speed on the track, but also by the “pit strategy”—the race team’s scheduled pit stops. Each stop was a tactical investment in performance, a deliberate slowing down, to enable the car to speed up afterward. Pit stops are not wasted time—they’re an essential part of an efficient, well-planned race.
+			- PN: love this 
+		- Plan to take a brief break between the different task “zones” in your day. For example, if you’re spending an hour catching up on email, give yourself a few minutes to stand up and clear your head before you jump into a meeting or a spell of analytical or creative work.
+		- Never let more than ninety minutes pass without doing something to refresh your mind and body—if possible, by stretching your legs and getting a brief change of scene.
+		- But I’ve found that if I give people a fifteen-minute break at that point, they return full of resolve and focus, making it possible for us to continue productively for another ninety minutes.
 
 ## Give yourself a deadline.
 - PN: I have honestly never done this before when it comes to my creative work. I hate deadlines. But I keep hearing it’s a useful forcing function for producing work, and here I am having produced nothing, so why not try it? I’ve also experienced the effects of having a very clear deadline and audience for a thing. When I’ve needed to prep a talk I’m giving for work, my thinking becomes clearer, I’m more engaged, and more likely to think of that thing that is going to refine my thinking even more. Jenny Odell says that if it wasn’t for the fact that she needed to prep a talk for EYEO, How to Do Nothing would have never happened. Deadlines might secretly rule. Also, prompts! Give yourself prompts and things to think and write about. 
@@ -369,7 +390,7 @@
 - Having a casual conversation with a friend, listening to music while making dinner, playing a game with your kids, going for a run—the types of activities that will fill your time in the evening if you enforce a work shutdown—play the same attention-restoring role as walking in nature.
 - Only the confidence that you’re done with work until the next day can convince your brain to downshift to the level where it can begin to recharge for the next day to follow.
 - regularly resting your brain improves the quality of your deep work. When you work, work hard. When you’re done, be done.
-* 
+\* 
 
 ## Share your work.
 - Share your stuff and show your work to people around you.
@@ -442,6 +463,67 @@
 	- Personal note: the gist being, don’t get sucked up into extracurriculars. Note: this is more about being productive than being creative, although having the time and space to be creative does go hand in hand. 
 	- Email is a wonderful thing for people whose role in life is to be on top of things. But not for me; my role is to be on the bottom of things. What I do takes long hours of studying and uninterruptible concentration.
 	- his administrative assistant will sort through any letters arriving at that address and put aside those that she thinks are relevant. Anything that’s truly urgent she’ll bring to Knuth promptly, and everything else he’ll handle in a big batch, once every three months or so.
+- That means having a process for capturing to-dos as soon as they occur to you, even if you then end up transferring them to a master list.
+	- Develop a habit of immediately getting worries and work-in-progress thoughts out of your head and down on “paper”—whether real paper or the electronic version—so that your brain no longer has to expend energy on remembering them.
+- Only keep today’s tasks in view. You might have a grand list of tasks you’d like to complete in the coming weeks or months. But once you’ve decided what you really need and want to get done today, work off that list, and hide the rest. As long as your longer-term items are visible, they’ll use up a little of your brain’s processing capacity—and may even depress you a little if your long list is very long.
+	- PN: I feel this so deeply. Long lists of things I want to do that are further out depress me so fucking much. 
+	- Do you have five things you’d like to tackle today, but know you probably only have time for three? It’s better to feel great about nailing three tasks. If you succeed and find you’ve got more time, you’ll be flushed with motivation to seek out one or two more tasks.
+	- Put exercise, rest, and other physical health goals on your list alongside your other tasks. If you take a moment to put “take a walk” on the list, you’re way more likely to build it into your day rather than let it be crowded out by other demands—just as defining goals for anything makes it more likely you’ll get it done.
+
+## Tools.
+- Not really tools, but whatever. This is a section to place things adjacent to creativity. Like the stuff you need to be mindful of in the hours when you’re not being creative. This is the shit I struggle with _all of the time._ 
+- We can hold 3 or 4 pieces of information in our brain at most.
+- It takes very little to put our brains into defensive mode, and we’re not at our smartest in that mode. However, a dose of self-awareness and the pursuit of certain types of rewards can help us move back into clearer-thinking discovery mode.
+	- Those three or four chunks of information can be big or small. For example, suppose you have an elaborate new idea for a project. Your working memory is full of your thoughts on this new idea. But then the name of a colleague comes to mind—someone you’re supposed to call. Then, a message pops up on the screen in front of you. Maybe there’s a blinking light on your phone. And all these things demand space in your working memory. Suddenly your deliberate system can’t think as clearly about your new project idea, because some of your ideas have been moved off the notepad to make space for the name, the message, and the light.
+	- In fact, while the deliberate system has access to maybe three or four pieces of information at once, research suggests that it’s only able to actually do one thing at a time.
+	- But our deliberate system isn’t actually doing anything in parallel at all; it’s switching from one task to another and back again. It gets tired pretty easily, too. If we don’t regularly rest and refuel our brain, the quality of our reasoning, self-control, and planning declines sharply
+- First, people often talked about getting a buzz from feeling productive, and from knowing that their efforts counted toward something worthwhile. The best days also tended to involve people feeling confident that they were doing a fine job, and that they had the support they needed from others.
+- The mind-body loop: The state of our bodies and that of our minds are far more deeply entwined than we generally realize. As a result, certain simple physical interventions can immediately boost our intellectual performance, emotional resilience, and personal confidence.
+- Once you know that the brain’s protective instinct is what lies behind a lot of dysfunctional behavior, life can be a lot easier.
+- rewarding to learn new and interesting things—even Jedi mind tricks
+	- ^^ PN: Wait a min, is this what prompted me to start thinking about all of this as Jedi mind training / connecting with the force? Jotting this down here but I want to write about how to become a MF Jedi. 
+- In discovery mode, you’re motivating yourself with rewards: a social sense of belonging or recognition; a personal sense of autonomy, competence, or purpose; or informational rewards that come from learning or experiencing new things.
+	- To be at your most resourceful in handling workplace challenges, it helps to become adept at recognizing when you’re sliding into defensive mode. Refocusing attention on potential rewards in the situation at hand can also help to reengage your deliberate system and shift you back into discovery mode.
+- In reality, decades of research suggest that the way we treat our body has a huge effect on the way our brain performs, thanks to the way it affects the brain’s blood flow, the balance of its neurochemicals, and the degree of connectivity between different brain regions.
+	- we can reap immediate intellectual and emotional dividends from investing in exercise and sleep, or even from taking a moment to breathe deeply, smile broadly, and stand a little taller.
+	- It’s powerful stuff. Research shows that even a single session of aerobic exercise immediately improves our intellectual performance, giving us faster information processing and reaction time, more effective planning, better short-term memory performance, and more self-control.
+	- Correspondingly, Bristol University researchers found that on days that people exercised before work or did something active during their lunch break, they were far better able to concentrate and handle their workload.
+	- They’re responding to scores of studies suggesting that mindfulness enhances our analytical thinking, capacity for insight, ability to focus, self-control, sense of well-being, energy, and emotional resilience.
+	- But what is mindfulness? At its heart, the practice is simply this: you pause, focus your attention on observing one thing, and calmly return your attention to that point of focus if your attention drifts away. Pause, focus, return—for anything from a few seconds up to twenty minutes or more.
+	- She says that mindfulness can be simply an attitude, one where you slow down and “notice new things” in whatever you’re doing throughout the day.
+	- The mental-to-physical side of this flow is familiar to us; for example, we know that when our minds are relaxed and happy, we tend to breathe and smile more easily. But it also goes the other way. When we slow our breathing and make ourselves smile, our brain appears to interpret that as a signal that we should feel relaxed
+	- The same thing is true for confidence, too. When we mimic the physical actions we might associate with being an alpha male or female—such as standing up taller, squaring our shoulders, making bold gestures—our brain sees that as a sign that we are genuinely in control, and responds accordingly.
+	- Mimicking the physical actions associated with feeling happy, confident, and relaxed appears to tell your brain that you are in fact happy, confident, and relaxed, creating a self-fulfilling loop.
+	- For example, if you instead decided to focus on finding new opportunities for collaboration or on hearing useful input from your colleagues, chances are you’d discover more of that. As we change our intentions, our brain’s filters change, and the facts can appear to change with them.
+	- have an intention-setting routine, one that has us pay explicit attention to the priorities, concerns, and mood we’re carrying into the day.
+	- In a third study, where volunteers were given a test to measure their concentration, those who were asked to wear a lab coat made half the number of errors of those who wore their street clothes—presumably thanks to an association between lab coats and high academic performance.
+		- PN: Dress the part. Honestly something here. If you show up in the world as what you want to be, you’re more likely to embody that space and actually become that person. 
+	- When he notices the tide of stress rising, Anthony says, he pauses, takes a deep breath, and then asks himself, “Do I want to feel like this?”
+	- I’ve found that asking this simple question reminds me that I have some choices in how I decide to react. 
+	- where you breathe in for a count of three, then breathe out for a count of three, then pause for a count of three. By slowing your heart rate, you’re sending a signal to your brain that the threat has passed, so it reduces the other signals of stress.”
+- If you genuinely want to have a good conversation, it’s better to articulate a more generous intention that speaks to the bigger picture. Ask yourself what you really want to achieve. In the case of dealing with your error-prone colleague, a bigger intention might be to help him work out how to avoid making the same mistake again. Thinking bigger still, you might decide you want to improve your working relationship, so in the future you can be more honest with each other about how things are going.
+	- To make our positive intentions an even stronger base for the day we want to have, there’s one more step we can take, which is to check and challenge any negative assumptions we’re carrying into the day.
+	- Like our priorities, concerns, and moods, our assumptions are another selective attention filter that our automatic brain uses to simplify our experience of the world. It works like this: If we encounter some information or behavior that matches what we’re expecting, our automatic system will probably make sure we’re aware of it.
+	- We just want to notice whenever we’re feeling strongly attached to some negative expectations about a situation or a person, and recognize that our attachment may cause us to filter out any evidence to the contrary.
+	- That flash of self-awareness can be just enough to remind ourselves to be a little more open to taking in new information.
+	- ^^ PN: Migrate some of this in to having a creative, open mindset. That’s what this is all about. 
+- Could you set yourself a simple response rule, to reduce the amount of time you spend deciding how to react to common, low-importance situations?
+- If you could set one boundary in the way you organize your time, what would it be? What’s the clearest, cleanest way to communicate this preference to others?
+- Automate small daily decisions. Consider whether you can do something at the same time or in the same way each day, to spend more of your mental energy on the things that matter.
+- the quality of our intent, the level of our curiosity, our ability to find things in common, and our own willingness to open up.
+- suggest that being asked a question (rather than being told to do something) leaves us feeling more in control, less defensive, and consequently more open to new ideas. Questions seem to encourage our brains into discovery mode, by piquing our curiosity and instilling a feeling of “Ooh, I wonder what the answer might be,” rather than “I must crack this darned thing.”
+- Here’s another tactic for increasing your chances of finding a new solution: portray your challenge in a different way, to engage parts of your brain that haven’t yet been invited to the party. For example, if you’ve been thinking about a problem in terms of numbers, try describing it visually—or vice versa.
+- when people find novel ways to articulate a challenge they’re working on. Mapping things out visually, with lines and boxes, can give us a better overview of the whole picture as well as helping us see new connections in a situation, often highlighting consequences or shortcuts that weren’t previously obvious. Writing about a potential solution in longhand—something most of us rarely do these days—can also encourage new insights.
+- Explain your issue to someone else. If you’ve spent a while wrestling with an idea, try explaining what you’re doing to someone else. In software engineering, this process is sometimes called “rubber ducking” because even explaining your work to an inanimate object (such as a rubber duck) is a reliable way of reaching new insight. It works because articulating your thoughts in conversation activates different neural networks than solo thinking does. Explaining what you’re doing to someone who’s not an expert in your field can also require you to use metaphors or examples, which in turn can encourage new thoughts.
+	- When you need a flash of inspiration on a thorny topic, try the following:
+	- Pose a question. When you’re feeling blocked, ask yourself: “What would be a totally different approach to this?” “What would be a great way of going about solving this?” “If I knew the answer, what would it be?” 
+	- Refresh and reboot. Try shifting your focus to a different type of task for a while, before returning to the original issue.
+	- Switch views. Try a different way of describing or looking at the issue you’re working on, and notice what patterns or insights come to the surface: 
+		- Write about it in longhand for ten minutes..
+		- “Rubber duck” it: explain the issue to someone unfamiliar with it.
+		- Create a physical map of your issue, e.g. using sticky notes.
+		- Find an analogy. Expose yourself to a different type of stimulus (e.g. observe another organization’s ways of working; view websites or images from fields different from yours), and ask yourself: How is this like the topic I’m working on? How is it different? What new idea does that suggest I could explore?
+
 
 ## Where ideas come from.
 - Usually insights tend to come to prepared minds, that is, to those who have thought long and hard about a given set of problematic issues. There are 3 main sources from which problems typically arise:
@@ -536,6 +618,7 @@
 - You must have an obsession. You must always have too little time instead of too much. 
 - You need to recognize patterns, identify themes, and find meaning in all that you’ve seen, gathered, and observed. Translate what you’ve uncovered in research into actionable frameworks and principles. Reframe the problem and choose where to focus your energy. 
 - Once your brain has become accustomed to on-demand distraction, Nass discovered, it’s hard to shake the addiction even when you want to concentrate. To put this more concretely: If every moment of potential boredom in your life—say, having to wait five minutes in line or sit alone in a restaurant until a friend arrives—is relieved with a quick glance at your smartphone, then your brain has likely been rewired to a point where, like the “mental wrecks” in Nass’s research, it’s not ready for deep work—even if you regularly schedule time to practice this concentration.
+
 
 
 
