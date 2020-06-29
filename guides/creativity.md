@@ -3,6 +3,7 @@
 ## Introduction.
 - simple tools, simple truths 
 - letting the universe work through you, in your work and in your life
+- so many people describe tapping into an underlying energy + force
 
 ## Be an interested person.
 - Don’t be afraid to make mistakes, or waste your time. Do a ton of worthless testing. Do things just for the sake of learning them, even if they don’t ultimately take you anywhere. The most important thing is to stay engaged and excited by the creative process. (is this actually the most important thing?). Don’t be overly hard on yourself in the early stages of a project.
@@ -63,6 +64,12 @@
 - Constant shifting from action to reflection, from passion to objectivity. 
 - It is exhilarating to build culture - to be an artist, a scientist, a thinker, or a doer. All too often the joy of discovery fails to be communicated to young people, who instead turn to passive entertainment. But consuming culture is never as rewarding as producing it. 
 - Do things in an extraordinary way. 
+- Life is nothing more than a stream of experiences — the more widely and deeply you swim in it, the richer your life will be.
+- The overall quality of an experience tends to improve in proportion to the effort and attention invested in it.
+	- being present, being where you are. If you’re at work, be at work. If you’re with your family, BE with your family. Be attuned to and live with the moment. 
+	- The more activities we can do with excellence and style, the more of life becomes intrinsically rewarding 
+- by experiencing the world from a different perspective, you will enrich your life considerably. 
+- things that you enjoy doing that expand your life.
 
 ## Don’t be concerned with what others think. (Remove ego).
 - The majority of people in every culture invest their lives in projects that are defined by their society. They pay attention to what others pay attention to, they experience what others experience. They go to school and learn what should be learned, they work at whatever job is available, they marry and have children according to the local customs. It is difficult to see how it could be otherwise. Would it be possible to have a stable, predictable life if most people were not conformists? At the same time, a culture can only evolve if a few souls do not play by the usual rules. The men and women we studied made up their own rules as they went along, combining luck with the singleness of their purpose, until they were ablate fashion a “life theme” that expressed their unique vision while also allowing them to make a living.
@@ -112,6 +119,7 @@
 	- that her commitment to focus on what was good in her life—“movies, walks, and a 6:30 martini”—worked surprisingly well.
 	- “Who you are, what you think, feel, and do, what you love—is the sum of what you focus on.”
 	- ignore the negative and savor the positive.
+- to learn new patterns of attention. To look at different things, and to look at them differently; to learn to think new thoughts, have new feelings about what we experience. 
 
 
 ## Getting started is everything.
@@ -243,14 +251,14 @@
 	- Turn off alerts.
 	- So when you need to do some focused work, close your email program entirely. Close your browser, or at least the tabs you’re not using.
 	- Store stray thoughts in a “parking lot.” Even when you’re doing your best to focus on one task, you may find that other thoughts pop into your mind as you’re working, and some of them are too valuable to lose. Rather than using up mental space trying to hold on to these stray sparks, or being drawn into exploring them, get into the habit of immediately recording them (maybe on a sticky note or in a voice memo) so that you know you can come back to them when the time is right.
-		- PN: I’ve started using Things for this, and it’s been really helpful. Sometimes I’m not anywhere close to a device though, in which case, I just jot them down on whatever spare piece of paper I can find. Not the most effective solution, but at least I get them down. 
+		- PN: I’ve started using Things for this, and it’s been really helpful. Sometimes I’m not anywhere close to a device though, in which case, I just jot them down on whatever spare piece of paper I can find. Not the most effective solution, but at least I get them down.
 	- TIMERS ARE EVERYTHING. I feel so much more focused and “on the clock” when I have a timer going. 
 	- Instead, when we’ve gone too long without a break, our automatic system takes over. And that means we tend to reach for the easiest payoff—the quick solution, the black-and-white answer, the short-term boost, the standard option, or the status quo—rather than the choice that’s necessarily best.
 		- Researchers are finding that when we allow our brains to take a break from a task, they appear to do important work in encoding and consolidating the information that we’ve just absorbed—and this reflection time results in enhanced learning and insight.
 			- PN: integrating + processing
 		- All of this means we make better use of our mental energy if we carve out a little time to recharge and reflect during the day, rather than pushing ourselves from appointment to appointment without any breathing space in between.
 		- But what stayed with me most was the idea that success was determined not only by the car’s speed on the track, but also by the “pit strategy”—the race team’s scheduled pit stops. Each stop was a tactical investment in performance, a deliberate slowing down, to enable the car to speed up afterward. Pit stops are not wasted time—they’re an essential part of an efficient, well-planned race.
-			- PN: love this 
+			- PN: love this
 		- Plan to take a brief break between the different task “zones” in your day. For example, if you’re spending an hour catching up on email, give yourself a few minutes to stand up and clear your head before you jump into a meeting or a spell of analytical or creative work.
 		- Never let more than ninety minutes pass without doing something to refresh your mind and body—if possible, by stretching your legs and getting a brief change of scene.
 		- But I’ve found that if I give people a fifteen-minute break at that point, they return full of resolve and focus, making it possible for us to continue productively for another ninety minutes.
@@ -289,10 +297,12 @@
 - Flow!!
 	- 9 main elements to describe how it feels when an experience is enjoyable:
 		- There are clear goals every step of the way - you know the next steps.
+			- having clear goals and expectations for whatever we do
 		- There is immediate feedback to one’s actions.
 		- There is a balance between challenges and skills - you’re walking a fine line between boredom and anxiety.
 		- Action and awareness are merged - our concentration is focused on what we do.
 		- Distractions are excluded from consciousness - aware only of what is relevant here and now, an intense concentration on the present, which relieves us of the usual fears that cause depression and anxiety in everyday life.
+			- concentrating on the task at hand without distraction
 		- There is no worry of failure - in flow, it is clear what has to be done, and our skills are potentially adequate to the challenges.
 		- Self-consciousness disappears - in flow, we are too involved in what we are doing to care about the ego ; paradoxically, the self expands through acts of self-forgetfulness.
 		- The sense of time becomes distorted.
@@ -390,7 +400,10 @@
 - Having a casual conversation with a friend, listening to music while making dinner, playing a game with your kids, going for a run—the types of activities that will fill your time in the evening if you enforce a work shutdown—play the same attention-restoring role as walking in nature.
 - Only the confidence that you’re done with work until the next day can convince your brain to downshift to the level where it can begin to recharge for the next day to follow.
 - regularly resting your brain improves the quality of your deep work. When you work, work hard. When you’re done, be done.
-\* 
+- It is important to schedule times in the day, the week, and the year just to take stock of your life and review what you have accomplished and what remains to be done.
+- whether you intend it or not, new ideas and conclusions will emerge in your subconscious anyway — and the less you try to direct the process, the more creative they are likely to be. 
+- typical activities that facilitate subconscious creative processes are walking, driving, showering, swimming, carpentry, gardening, etc. 
+- you should alternate stress with periods of relaxation. Relaxation can just mean doing something totally different from your usual tasks, like art, rock climbing, etc. 
 
 ## Share your work.
 - Share your stuff and show your work to people around you.
@@ -456,7 +469,7 @@
 - Make time for reflection and relaxation. Typical activities that facilitate subconscious creative processes are walking, showering, swimming, driving, gardening, weaving, and carpentry.
 - You should alternate stress with periods of relaxation. The best relaxation usually involve doing something very different from your usual tasks.
 - Find out what you like and hate about life. Creative individuals are in very close touch with their emotions. They always know the reason for what it is they’re doing, and they are sensitive to pain, to boredom, to joy, to interest, and to other emotions. The first thing is to keep a careful record of what you did each day and how you felt about it. The first step toward self-knowledge involves having a clear idea of what you spend your life doing and how you feel while doing it.
-- Start doing more of what you love, less of what you hate. The only way to stay creative is to oppose the wear and tear of existence with techniques that organize time, space, and activity to your advantage. It is much easier to be creative when you maximize optimal experiences in everyday life. 
+- Start doing more of what you love, less of what you hate. The only way to stay creative is to oppose the wear and tear of existence with techniques that organize time, space, and activity to your advantage. It means developing schedules to protect your time and avoid distraction, arranging your surroundings to heighten concentration, cutting out meaningless chores that soak up psychic energy, and devoting the energy thus saved to what you really care about. It is much easier to be creative when you maximize optimal experiences in everyday life. 
 - The domain of personal life consists of the rules that constrain psychic energy, the habits and practices that define what we do day in, day out. How we dress, how we work, how we conduct our relationships define this domain, and if we can improve it, the quality of life as a whole is improved.
 - the batching of hard but important intellectual work into long, uninterrupted stretches.
 - If anyone asks me to be on a committee for admissions, “no,” I tell them: I’m irresponsible.
@@ -481,7 +494,7 @@
 - The mind-body loop: The state of our bodies and that of our minds are far more deeply entwined than we generally realize. As a result, certain simple physical interventions can immediately boost our intellectual performance, emotional resilience, and personal confidence.
 - Once you know that the brain’s protective instinct is what lies behind a lot of dysfunctional behavior, life can be a lot easier.
 - rewarding to learn new and interesting things—even Jedi mind tricks
-	- ^^ PN: Wait a min, is this what prompted me to start thinking about all of this as Jedi mind training / connecting with the force? Jotting this down here but I want to write about how to become a MF Jedi. 
+	- ^^ PN: Wait a min, is this what prompted me to start thinking about all of this as Jedi mind training / connecting with the force? Jotting this down here but I want to write about how to become a MF Jedi.
 - In discovery mode, you’re motivating yourself with rewards: a social sense of belonging or recognition; a personal sense of autonomy, competence, or purpose; or informational rewards that come from learning or experiencing new things.
 	- To be at your most resourceful in handling workplace challenges, it helps to become adept at recognizing when you’re sliding into defensive mode. Refocusing attention on potential rewards in the situation at hand can also help to reengage your deliberate system and shift you back into discovery mode.
 - In reality, decades of research suggest that the way we treat our body has a huge effect on the way our brain performs, thanks to the way it affects the brain’s blood flow, the balance of its neurochemicals, and the degree of connectivity between different brain regions.
@@ -497,7 +510,7 @@
 	- For example, if you instead decided to focus on finding new opportunities for collaboration or on hearing useful input from your colleagues, chances are you’d discover more of that. As we change our intentions, our brain’s filters change, and the facts can appear to change with them.
 	- have an intention-setting routine, one that has us pay explicit attention to the priorities, concerns, and mood we’re carrying into the day.
 	- In a third study, where volunteers were given a test to measure their concentration, those who were asked to wear a lab coat made half the number of errors of those who wore their street clothes—presumably thanks to an association between lab coats and high academic performance.
-		- PN: Dress the part. Honestly something here. If you show up in the world as what you want to be, you’re more likely to embody that space and actually become that person. 
+		- PN: Dress the part. Honestly something here. If you show up in the world as what you want to be, you’re more likely to embody that space and actually become that person.
 	- When he notices the tide of stress rising, Anthony says, he pauses, takes a deep breath, and then asks himself, “Do I want to feel like this?”
 	- I’ve found that asking this simple question reminds me that I have some choices in how I decide to react. 
 	- where you breathe in for a count of three, then breathe out for a count of three, then pause for a count of three. By slowing your heart rate, you’re sending a signal to your brain that the threat has passed, so it reduces the other signals of stress.”
@@ -523,6 +536,13 @@
 		- “Rubber duck” it: explain the issue to someone unfamiliar with it.
 		- Create a physical map of your issue, e.g. using sticky notes.
 		- Find an analogy. Expose yourself to a different type of stimulus (e.g. observe another organization’s ways of working; view websites or images from fields different from yours), and ask yourself: How is this like the topic I’m working on? How is it different? What new idea does that suggest I could explore?
+- creative individuals do’t rush to define the nature of problems; they look at the situation from various angles first and leave the formulation undetermined for a long time. They consider different causes and reasons. They test their Hughes about what is really going o, first I their own mid, ad the I reality. They try tentative solutions and check their success — and are open to reformulating the problem if the evidence suggests they started out o the wrong path. 
+- REVERSE THE FORMULATION!! Look at it from a different angle. “This happened because the boss dislikes me,” versus “This happened because I dislike the boss.” Explore different causes. Pause to consider a greater range of possible explanations for what happens to them, they have a wider and less predictable range of options to choose from. 
+- Creative individuals experiment with a number of alternative solutions until they are certain they’ve found the one that will work best. 
+	- PN: start small, try things, iterate and tweak
+	- Try one way of going about the problem, and then take a different tack for a bit. Compare results. Continuous experimentation and revision.
+	- The longer you can keep your options open, the more likely it is your solution will be both original and appropriate. 
+		- 
 
 
 ## Where ideas come from.
@@ -618,6 +638,21 @@
 - You must have an obsession. You must always have too little time instead of too much. 
 - You need to recognize patterns, identify themes, and find meaning in all that you’ve seen, gathered, and observed. Translate what you’ve uncovered in research into actionable frameworks and principles. Reframe the problem and choose where to focus your energy. 
 - Once your brain has become accustomed to on-demand distraction, Nass discovered, it’s hard to shake the addiction even when you want to concentrate. To put this more concretely: If every moment of potential boredom in your life—say, having to wait five minutes in line or sit alone in a restaurant until a friend arrives—is relieved with a quick glance at your smartphone, then your brain has likely been rewired to a point where, like the “mental wrecks” in Nass’s research, it’s not ready for deep work—even if you regularly schedule time to practice this concentration.
+- Symbolic systems
+	- special domains have their own special rules. They and thousands of other such systems make up culture, and we become human by seeing the world through the lenses they provide. A person who learns to operate by the rules of one of these domains has a chance to expand enormously the rang of his or her creativity. 
+- Complex domains like poetry, physics, history, or politics reveal constantly expanding perspectives to those who venture to explore them. 
+	- generally it is more satisfying to become involved in activities that are inexhaustible — music, poetry, carpentry, computers, gardening, philosophy, or deep personal relationships. 
+- be present. It’s the journey, not the destination. 
+	- they’re more ready to learn from the emerging work, they’re alert to the unexpected and are willing to go with a better solution if one presents itself (they don’t start with the end in mind, the work reveals itself to them over time). 
+	- such flexibility only works if you keep paying close attention to the process of solutions ad if you are sensitive enough to the feedback so you can correct the course as new information becomes available. 
+	- what really matters is not whether your name has been attached to a recognized discover, but whether you have lived a full and creative life. 
+- everyday creativity.
+	- how do you express yourself? Your appearance, your environment?
+	- how do you communicate with others? You can use trite, cliche phrases or try to say things in a fresh, topical way that more closely represents what you feel at the moment. You can use vivid images instead of stock ones.
+	- let yourself be generative. Planning a weekend or a vacation? Come up with as many options as you can think of, even if they’re not all very sensible.  Allow yourself to explore a range of ideas and possibilities rather than going directly to defaults. Variety in conversation, in music, in a menu, different types of conversations. 
+	- If your job requires frequent meetings + conferences, you might cultivate the habit of jotting dow brief summaries of what others around the table have said. Then you ca quickly generate alternative positions to those that have been expressed, or integrate the various perspectives in a more comprehensive perspective. Suggest new ways of thinking about the issues.
+		- ^^^^^ YES. Do this. You kind of already do, but do so more deliberately at work, and also with the content you engage with and consume that’s related to your work. 
+
 
 
 
