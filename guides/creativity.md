@@ -1,82 +1,41 @@
 # On creative work
 
-## Introduction.
 - simple tools, simple truths 
 - letting the universe work through you, in your work and in your life
 - so many people describe tapping into an underlying energy + force
-
-## Be an interested person.
-- Don’t be afraid to make mistakes, or waste your time. Do a ton of worthless testing. Do things just for the sake of learning them, even if they don’t ultimately take you anywhere. The most important thing is to stay engaged and excited by the creative process. (is this actually the most important thing?). Don’t be overly hard on yourself in the early stages of a project.
-- Don’t let your fear control you. Don’t stop yourself. 
-- Enjoy your work. Stay as light and unburdened as possible. Taking yourself too seriously starts to close you up. The results of your work don’t have much to do with you. You can only be in charge of producing the work yourself. 
-- The essential ingredients for creativity remain exactly the same for everyone: courage, enchantment, permission, persistence, and trust. 
-- Living a life that is driven more strongly by curiosity than fear. 
+- Living a creative life is to live a life of contradictions. Be open to the world, but then focused. Relax a little, but show up to do the work day-in and day-out.
 - A creative life is an amplified life. It’s a bigger life, a happier life, an expanded life, and a hell of a lot more interesting life. Living in this manner — continually and stubbornly bringing forth the jewels that are hidden within you — is a fine art, in and of itself. 
-- I decided that I would need to build an expansive enough interior life that my fear and my creativity could peacefully coexist. I make all that space for fear. It seems to me that the less I fight my fear, the less it fights back. If I can relax, fear relaxes too. 
+- it has continued to do what it always has done: it makes my life a brighter and more pleasant place.
+- Creativity is one answer to having a good life. It provides one of the most exciting models for living. 
+	- PN: very consistent theme that living creatively is just a more interesting and better way to live. It makes things rich and fulfilling.
+- The important message we can learn from creative people is how to find purpose and enjoyment in the chaos of life. 
+- Without a good dose of curiosity, wonder, and interest in what things are like and in how they work, it is difficult to recognize an interesting problem. Openness to experience, a fluid attention that constantly processes events in the environment, is a great advantage for recognizing potential novelty.
+
+## Get your mind right. 
+
+Each of us is born with two contradictory sets of instructions: a conservative tendency, made up of instincts for self-preservation, self-aggrandizement, and saving energy, and an expansive tendency made up of instincts for exploring, for enjoying novelty and risk - the curiosity that leads to creativity belongs to this set. 
+
+Curiosity and drive are in many ways the yin and yang that need to be combined in order to achieve something new. The first requires openness to outside stimuli, the other inner focus. The first is playful, the second serious, the first deals with objects and ideas for their own sake, the second is competitive and achievement oriented. 
+
+A new way of doing things is discovered because the person is always open to new learning and has the drive to carry through the new idea that emerges from that learning.
+
+### Be curious. Explore things that you enjoy. 
+- PN: Be an interested person, in the truest sense of the world. Be interested. Be curious. Ask questions. So often we shield ourselves from the most miraculous things our lives have to offer. We numb ourselves from experiencing our lives just so we can “get through” another day. 
+	- LOL. If you will not permit yourself to be driven and flogged through life, you’ll probably enjoy it more. 
+- PN: A lot of this is simply about enjoyment. Enjoying your life, enjoying your work. Not taking it so seriously, but also being very disciplined and committed to your craft at the same time. 
+- Enjoy your work. Stay as light and unburdened as possible. Taking yourself too seriously starts to close you up. The results of your work don’t have much to do with you. You can only be in charge of producing the work yourself. 
+- Living a life that is driven more strongly by curiosity than fear. 
 - ENJOY IT. Work had to be enjoyable on a daily basis.
 - Treat work as play. Live a rich and rounded life. 
 - The art comes from a creative imagination which is working hard and having fun.
-- I have many interests, but only a few that are deep enough to power novels. These deep interests (I won’t quite call them obsessions) include how difficult it is—perhaps impossible!—to close Pandora’s technobox once it’s open. 
-- the question of why, if there is a God, such terrible things happen
-- the thin line between reality and fantasy
-- the terrible attraction violence sometimes has for fundamentally good people (The Shining, The Dark Half).
-- I’ve also written again and again about the fundamental differences between children and adults, and about the healing power of the human imagination. 
-- Writing did not save my life—Dr. David Brown’s skill and my wife’s loving care did that—but it has continued to do what it always has done: it makes my life a brighter and more pleasant place.
-- Although it’s never seemed like a choice to me, I live for this feeling. Curiosity is what gets me so involved in something that I forget myself.
-- Through attention and curiosity, we can suspend our tendency toward instrumental understanding—seeing things or people one-dimensionally as the products of their functions—and instead sit with the unfathomable fact of their existence, which opens up toward us but can never be fully grasped or known.
-- In contrast to I-it, I-Thou recognizes the irreducibility and absolute equality of the other. In this configuration, I meet you “thou” in your fullness by giving you my total attention; because I neither project nor “interpret” you, the world contracts into a moment of a magical exclusivity between you and me.
-- I’m reminded of the way Thoreau described unthinking people in “Civil Disobedience”: as basically dead before their time. If I think I know everything that I want and like, and I also think I know where and how I’ll find it—imagining all of this stretching endlessly into the future without any threats to my identity or the bounds of what I call my self—I would argue that I no longer have a reason to keep living.
-- we are also running the risk of never being surprised, challenged, or changed—never seeing anything outside of ourselves, including our own privilege. And we’re less prone to the encounters with those who turn us upside down and reorganize our universe—those who stand to change us significantly, should we allow it.
-- Creativity is one answer to having a good life. It provides one of the most exciting models for living. 
-	- PN: very consistent theme that living creatively is just a more interesting and better way to live. It makes things rich and fulfilling.
-- Each of us is born with two contradictory sets of instructions: a conservative tendency, made up of instincts for self-preservation, self-aggrandizement, and saving energy, and an expansive tendency made up of instincts for exploring, for enjoying novelty and risk - the curiosity that leads to creativity belongs to this set. 
+- Things that you enjoy doing that expand your life.
+- It’s okay to have deep interests and questions that influence and guide your work. 
 - I like that expression “It makes the spirit sing," and I use it quite often. Because outside my house on the Cape we have this tall grass and I watch it and I say “It is singing grass, I hear it singing.” I have a need inside me, of certain joy, you see? An expression of joy. I feel it. I suppose that I am glad to be alive, glad that I have a man whom I love and a life that I enjoy and the things which I work on which sometimes make my spirit sing. And I hope everybody has that feeling inside. I am grateful that I have a spirit inside me which often sings. I feel that I do things that make a difference to me and give me great satisfaction. And I can always discuss things with my husband and we find great parallels, you see, of when he has an idea when he works on something and when we come together and discuss our days and what we have been doing. Not always but often. It is a great bond between us. And also he has been very interested in what I am doing and so in a way he is very much involved in my world. He photographs the things which I do and he is very, very much interested. I can discuss everything with him. It is not like I am working in the dark. I can always come to him and he will give me some advice. I may not always take it, but still there it is. Life feels rich with it. It does. 
-	- PN: Note the use of the word “spirit”? It echoes the concept of the muse, of a spirit that works through you, and is not _of_ you.
-- The important message we can learn from creative people is how to find purpose and enjoyment in the chaos of life. 
-- Without a good dose of curiosity, wonder, and interest in what things are like and in how they work, it is difficult to recognize an interesting problem. Openness to experience, a fluid attention that constantly processes events in the environment, is a great advantage for recognizing potential novelty.
-- Creative individuals have a great deal of physical energy, but they are also often quiet and at rest. They work long hours, with great concentration, while projecting an aura of freshness and enthusiasm. The energy of these people is internally generated. This does not mean that creative persons are hyperactive, always “on,” constantly churning away. In fact, they often take rests and sleep a lot. The important thing is that the energy is under their own control - it is not controlled by the calendar, the clock, an external schedule. They consider the rhythm of activity followed by idleness or reflection very important for the success of their work. 
-	- PN: Yep, ties exactly to what Jenny Odell was saying with being “on” and “off”
-	- PN: Having control over your time and energy is interesting and is NOT something I had captured here but is pretty obvious. If you don’t have control over your time and energy, how are you supposed to leverage that time for creative work? The question then becomes, how does one go about gaining control over their time and energy when working a day job, or being a parent, etc? 
-		- What counts is to be a master of one’s own time. 
-		- Beyond luck and external factors, what allows certain individuals to make memorable contributions to the culture is a personal resolution to shape their lives to suit their own goals instead of letting external forces run their destiny. They created their own lives. 
-		- A laid-back approach is the way you can do it, better than getting all uptight
-	- Okay, this also relates to the Ask Polly columns I was reading earlier today. Some quotes from Heather Havrilesky below:
-		- “offices, which are places where all sense of time and space evaporate and all connection to your own desires and longings, to your own humanity, to the natural rhythms of existence, steadily erode until your life feels like a shadow, haunting a dim facsimile of what a life is supposed to feel like.”
-- If you will not permit yourself to be driven and flogged through life, you’ll probably enjoy it more. 
 - Duality. Selflessness and ambition. Playfulness and discipline, responsibility and irresponsibility. A playfully light attitude. “The most important thing in a young physicist is this bounce, which I always associate with fun in science, kicking things around. It’s not quite joking, but it has some of the lightness of joking. It’s exploring ideas.”
-- Detached attachment, which Elizabeth Gilbert talks about as well. 
-	-…to be detached from everything that bound me, noticing everything that was different. (On going abroad) 
-- PN: A lot of this is simply about enjoyment. Enjoying your life, enjoying your work. Not taking it so seriously, but also being very disciplined and committed to your craft at the same time. 
-	- PN: Was reading a few of Heather Havrilesky’s advice columns this afternoon and they were a complete _delight_. Some of my highlights from those that are relevant here. “Learn to savor the work itself…And not only is it harder to finish creative work when you view it as a means to an end — a path to a shinier, more important life…” “Forcibly remove the question mark. Are you writing almost every day? Well then, congratulations. You’re a writer. You’ve arrived.” 
-	- Heather Havrilesky: “I want to strongly recommend that you learn to create a giddy bubble, a Bizarro world, in which you are a fucking creative genius whether or not you have an impressive body of work to your credit. Each day, celebrate your most minor word-crafting victories; cheer on your most constipated, tedious paragraphs; and use the writing process to enjoy your freaky gray matter until every single writing session emulates the feeling of being a drunk, stoned, young, gorgeous ballerina living on Mars. That is the point, the purpose, the peak: to enjoy the world you inhabit when you write. You take foolish leaps, you meander, you invite edits, you revisit your own words lovingly but patiently. You’re smug and grandiose and insufferable? Of course! That’s the goal, dummies! If you’re living right, you find yourself chuckling amiably at your own beauty, your grace, your effortless pirouettes of boozy wordsmithery. “Life as a ballerina on motherfucking Mars is good,” you tell yourself. And in that moment, it is. That’s what matters.
-	- No matter what you do for a living, the only thing you’ll get more and more and more of is hard work. So figure out what kind of hard work feels satisfying to you. Learn to enjoy the hard work, and learn to enjoy the times when you’re not working, and you’ll learn to enjoy life itself. And when you have a tough day, by yourself, not writing a word, remember that your goal is not just about one day’s production, or about making a name for yourself, or about achieving perfect independence and financial security. Your goal is to enjoy your life, period. Your path is unique and very difficult, and it doesn’t lead to some promised land. The path itself is all there is.
-	- “The whole reason to write is to matter, to be seen, to be somebody. And you’ll find that even when these people make it by most standards, it’s never enough. It’s not just that they have new projects they want to complete. They want MORE, period. More attention, more money, more fame, more glory, more more more.”
-		- PN: Your reason for doing all this cannot be to be well known or be recognized. That’s going to suck all the joy out of it, and from your day. It sounds dumb, but your driving motivation has to be purer than that — to engage with the work, to figure out your thinking on something. If that’s the driving thing, then it doesn’t matter what people think of it, or who sees it. It lifts the pressure.
-- What is important is to recognize the interest when it shows itself, nurture it, and provide the opportunities for it to grow into a creative life. 
-- Curiosity and drive are in many ways the yin and yang that need to be combined in order to achieve something new. The first requires openness to outside stimuli, the other inner focus. The first is playful, the second serious, the first deals with objects and ideas for their own sake, the second is competitive and achievement oriented. 
-	- A new way of doing things is discovered because the person is always open to new learning and has the drive to carry through the new idea that emerges from that learning.
 - “But like most creative people, he does not take himself too seriously.”
-- Caring is a good feeling, and we’ve lost our appetite for it.
 - An openness, a receptivity, a positive rather than a negative attitude. 
-- This tendency to take one’s dreams and hunches seriously and to see patterns where others see meaningless confusion is clearly one of the most important traits that separates creative individuals from otherwise equally competent peers. They all see themselves as primarily synthesizers. They compare what they do to the work of a detective or an explorer. 
-- What mattered was to do the best she could and enjoy it while it lasted, without getting all ego-minded with success.
-- To get the things done that I had to get done, I had to be more open and more interested.
-- Constant shifting from action to reflection, from passion to objectivity. 
-- It is exhilarating to build culture - to be an artist, a scientist, a thinker, or a doer. All too often the joy of discovery fails to be communicated to young people, who instead turn to passive entertainment. But consuming culture is never as rewarding as producing it. 
-- Do things in an extraordinary way. 
-- Life is nothing more than a stream of experiences — the more widely and deeply you swim in it, the richer your life will be.
-- The overall quality of an experience tends to improve in proportion to the effort and attention invested in it.
-	- being present, being where you are. If you’re at work, be at work. If you’re with your family, BE with your family. Be attuned to and live with the moment. 
-	- The more activities we can do with excellence and style, the more of life becomes intrinsically rewarding 
-- by experiencing the world from a different perspective, you will enrich your life considerably. 
-- things that you enjoy doing that expand your life.
 
-## Don’t be concerned with what others think. (Remove ego).
-- The majority of people in every culture invest their lives in projects that are defined by their society. They pay attention to what others pay attention to, they experience what others experience. They go to school and learn what should be learned, they work at whatever job is available, they marry and have children according to the local customs. It is difficult to see how it could be otherwise. Would it be possible to have a stable, predictable life if most people were not conformists? At the same time, a culture can only evolve if a few souls do not play by the usual rules. The men and women we studied made up their own rules as they went along, combining luck with the singleness of their purpose, until they were ablate fashion a “life theme” that expressed their unique vision while also allowing them to make a living.
-- Never took naysayers seriously. 
-- Fortunate to have a calling that makes it possible for them to dwell as little as possible on what might have been and go on with their lives. 
-
-## Paying attention.
+### Pay attention.
 - Listening. Being present. Paying attention to people, things.
 - Consider where a life of sustained attention leads.
 - People can find ways of connecting that are substantive, sustaining
@@ -120,12 +79,59 @@
 	- “Who you are, what you think, feel, and do, what you love—is the sum of what you focus on.”
 	- ignore the negative and savor the positive.
 - to learn new patterns of attention. To look at different things, and to look at them differently; to learn to think new thoughts, have new feelings about what we experience. 
+-  Although it’s never seemed like a choice to me, I live for this feeling. Curiosity is what gets me so involved in something that I forget myself.
+- Through attention and curiosity, we can suspend our tendency toward instrumental understanding—seeing things or people one-dimensionally as the products of their functions—and instead sit with the unfathomable fact of their existence, which opens up toward us but can never be fully grasped or known.
+- In contrast to I-it, I-Thou recognizes the irreducibility and absolute equality of the other. In this configuration, I meet you “thou” in your fullness by giving you my total attention; because I neither project nor “interpret” you, the world contracts into a moment of a magical exclusivity between you and me.
+- I’m reminded of the way Thoreau described unthinking people in “Civil Disobedience”: as basically dead before their time. If I think I know everything that I want and like, and I also think I know where and how I’ll find it—imagining all of this stretching endlessly into the future without any threats to my identity or the bounds of what I call my self—I would argue that I no longer have a reason to keep living.
+- we are also running the risk of never being surprised, challenged, or changed—never seeing anything outside of ourselves, including our own privilege. And we’re less prone to the encounters with those who turn us upside down and reorganize our universe—those who stand to change us significantly, should we allow it.
 
+### Don’t be in it for fame or glory.
+- PN: Your reason for doing all this cannot be to be well known or be recognized. That’s going to suck all the joy out of it, and from your day. It sounds dumb, but your driving motivation has to be purer than that — to engage with the work, to figure out your thinking on something. If that’s the driving thing, then it doesn’t matter what people think of it, or who sees it. It lifts the pressure.
+- PN: Fear happens when you attach outsize meaning to something. Can you accept that you’re not going to win a Pulitzer right out of the gate? Good. You’re not doing this for any reason but because you _enjoy it._ That’s where the magic happens. You trip when you start wondering about the destination, but the journey is where it’s at. 
 
-## Getting started is everything.
+### Creativity is a muse. Treat it like one.
+- Give your creativity a name or something. Make it be a muse if that makes you feel less pressure. You’re trying to make yourself as receptive and open to the muse as possible. Keeping your mind engaged. If you’re in service to this other being this other entity, rather than responsible to yourself, I find it eases the pressure. This outside force wants to work through you, you just need to let it. It’s not about you failing to live up to your own god damn potential. 
+- It’s a subtle but important distinction between being a genius, and having a genius. When artists are burdened with the label of “genius” they run the risk of losing the ability to take themselves lightly, or to create freely. Rather than being a genius, the Greeks and Romans both believed in the idea of an external daemon of creativity, a sort of house elf you lived within the walls of your home and aided you in your efforts. The Romans didn’t believe an exceptionally gifted person was a genius, they believed they had a genius.
+- Try to present yourself to your creativity as if you are sexy — as if you are somebody worth spending time with. 
+- Take you out of yourself. 
+- ^^ I am so obsessed with the above and I’ve heard others describe it as such
+- Present yourself well. Get dressed to do the work. 
+- The work wants to be made, and it wants to be made through you.
+- good story ideas seem to come quite literally from nowhere, sailing at you right out of the empty sky: two previously unrelated ideas come together and make something new under the sun. Your job isn’t to find these ideas but to recognize them when they show up.
+- These alien creatures got into your head and just started  . . . . well, tommyknocking around in there. What you got was energy and a kind of superficial intelligence (the writer, Bobbi Anderson, creates a telepathic typewriter and an atomic hot-water heater, among other things). What you gave up in exchange was your soul. It was the best metaphor for drugs and alcohol my tired, overstressed mind could come up with.
+- At its most basic we are only discussing a learned skill, but do we not agree that sometimes the most basic skills can create things far beyond our expectations? We are talking about tools and carpentry, about words and style  . . . . but as we move along, you’d do well to remember that we are also talking about magic.
+- There is a muse, but he’s not going to come fluttering down into your writing room and scatter creative fairy-dust all over your typewriter or computer station. He lives in the ground. He’s a basement guy. You have to descend to his level, and once you get down there you have to furnish an apartment for him to live in. You have to do all the grunt labor, in other words, while the muse sits and smokes cigars and admires his bowling trophies and pretends to ignore you. Do you think this is fair? I think it’s fair. He may not be much to look at, that muse-guy, and he may not be much of a conversationalist (what I get out of mine is mostly surly grunts, unless he’s on duty), but he’s got the inspiration. It’s right that you should do all the work and burn all the midnight oil, because the guy with the cigar and the little wings has got a bag of magic. There’s stuff in there that can change your life.
+- Personal note: Playing the role of a paleontologist or archaeologist or a sculptor. Have seen those metaphors get thrown out a lot by both Gilbert and King. 
+- I want you to understand that my basic belief about the making of stories is that they pretty much make themselves.
+- I believed stories are found things, like fossils…
+- Stories are relics, part of an undiscovered pre-existing world. The writer’s job is to use the tools in his or her toolbox to get as much of each one out of the ground intact as possible. Sometimes the fossil you uncover is small; a seashell. Sometimes it’s enormous, a Tyrannosaurus Rex with all those gigantic ribs and grinning teeth.
+- No matter how good you are, no matter how much experience you have, it’s probably impossible to get the entire fossil out of the ground without a few breaks and losses. To get even most of it, the shovel must give way to more…
+- Plot is a far bigger tool, the writer’s jackhammer. You can liberate a fossil from hard ground with a jackhammer, no argument there, but you know as well as I do that the jackhammer is going to break almost as much stuff as it liberates. It’s clumsy, mechanical, anticreative. Plot is, I think, the good writer’s last resort and the dullard’…
+- A strong enough situation renders the whole question of plot moot, which is fine with me. The most interesting situations can usually be expressed as a What-if question:
+	- What if vampires invaded a small New England village? (‘Salem’s Lot)
+	- What if a policeman in a remote Nevada town went berserk and started killing everyone in sight? (Desperation)
+	- What if a cleaning woman suspected of a murder she got away with (her husband) fell under suspicion for a murder she did not commit (her employer)?
+	- What if a young mother and her son became trapped in their stalled car by a rabid dog?
+	- These were all situations which occurred to me—while showering, while driving, while taking my daily walk—and which I eventually turned into books.
+- I think that, when you read your manuscript over (and when you talk it over), you’ll see if symbolism, or the potential for it, exists. If it doesn’t, leave well enough alone. If it does, however—if it’s clearly a part of the fossil you’re working to unearth—go for it.
+- Personal note: This idea that I’m just the person uncovering things that already exist (a paleontologist uncovering fossils), than someone coming up with entirely new ideas out of thin air. 
+- People are not geniuses. They have geniuses, which is this entirely separate kind of creature or entity that lives within the walls of your home and aids you in your efforts.
+- Personal note: you can still set boundaries and guidelines. Like, this is what we think the shape thing is, and here are the qualities we really care about. But keeping the shape large early on, and whittling it down from there, like you’re excavating a dinosaur of creating a sculpture, and being careful to not be overly prescriptive too early in the process. 
+- Personal note: It’s not bringing something to life, it’s unearthing it. 
+- I read this elsewhere and it’s relevant here, need to find the original quote: It’s a sculptor who knows there is something hidden within the marble, it’s her job to find it and excavate it. 
+- Personal note: You’re just uncovering stuff that’s already there. That takes the pressure off it. You just have to be open and paying attention. 
+- Ideas need supporters, carriers, and executers to become real. 
+
+### Managing the fear. 
+- PN: The fear will always exist. You just need to learn to manage it. To treat it as a visitor who you can invite inside or not. To be aware that it is not YOU. It is something else entirely. 
+- Don’t let your fear control you. Don’t stop yourself. 
+- Don’t be afraid to make mistakes, or waste your time. Do a ton of worthless testing. Do things just for the sake of learning them, even if they don’t ultimately take you anywhere. The most important thing is to stay engaged and excited by the creative process. (is this actually the most important thing?). Don’t be overly hard on yourself in the early stages of a project.
+- The majority of people in every culture invest their lives in projects that are defined by their society. They pay attention to what others pay attention to, they experience what others experience. They go to school and learn what should be learned, they work at whatever job is available, they marry and have children according to the local customs. It is difficult to see how it could be otherwise. Would it be possible to have a stable, predictable life if most people were not conformists? At the same time, a culture can only evolve if a few souls do not play by the usual rules. The men and women we studied made up their own rules as they went along, combining luck with the singleness of their purpose, until they were ablate fashion a “life theme” that expressed their unique vision while also allowing them to make a living.
+- I decided that I would need to build an expansive enough interior life that my fear and my creativity could peacefully coexist. I make all that space for fear. It seems to me that the less I fight my fear, the less it fights back. If I can relax, fear relaxes too. 
+
+## Get started.
 - Take the first practical step.
 - A body at rest tends to stay at rest; a body in motion tends to stay in motion. 
-- Do or do not, there is no try. 
 - You don’t have to know exactly where it is you’re going. You’ll figure that out much better if you get started than if you try to plan it all out. 
 - You won’t always know what you’re doing or where you’re going until you get started. 
 - Getting something down on paper makes the thing clearer than just thinking about it. It also gives people something to respond to. 
@@ -145,38 +151,62 @@
 - Don’t get ready, get started! 
 - Less is more. Put a dot on the ideas you could explore within the next 2 hours. Or, pick an idea you could prototype by the end of the week.
 - Starting small gets you from a state of rest into a state of motion.
-\* 
 
-## Immerse yourself.
-- Seek inspiration, all the time.
-- Look to the past for inspiration as well as the present. Be evaluating works that are both recognized today, as well as those that were recognized in the past. 
-	- Personal note: Work that was produced a long time ago, in a different context, takes on new meaning in present day. The past can be cross-examined and modernized to create something entirely new.
-- Inspiration comes from other people, research.
-- Let these things breathe new life into your thinking and imagination.
-- When you’re inspired, ideas living within us will find a way to be expressed
-- Binge. Feed your mind with information, ideas and inspiration related to your subject. Fill your brain. Get it so full of information. Go off on tangents. Follow your interests. And when your head is full, stop. 
-- Be mindful of what you consume. When you’re consuming, you’re not creating, and thinking for yourself. That doesn’t mean going cold turkey on any media. It just means being conscious and thoughtful about what you do decide to consume, and making sure you’re giving yourself time and space for your own thinking to simmer and bubble up. 
-	- Information today as a kind of assault. Context-less, hitting you in the face, causing whiplash. 
-	- By spending too much time on social media and chained to the news cycle, he says, “you are marinating yourself in the conventional wisdom. In other people’s reality: for others, not for yourself. You are creating a cacophony in which it is impossible to hear your own voice, whether it’s yourself you’re thinking about or anything else.”
-	- Given the current reality of my digital environment, distance for me usually means things like going on a walk or even a trip, staying off the Internet, or trying not to read the news for a while.
-	- Computer literacy is more a question of learning to be a consumer of information than knowing how to generate or use the information acquired.
-		\* 
-- Bioregionalism teaches us of emergence, interdependence, and the impossibility of absolute boundaries. As physical beings, we are literally open to the world, suffused every second with air from somewhere else; as social beings, we are equally determined by our contexts. If we can embrace that, then we can begin to appreciate our and others’ identities as the emergent and fluid wonders that they are.
-- Most of all, we can open ourselves to those new and previously unimaginable ideas that may arise from our combination, like the lightning that happens between an evanescent cloud and the ever-shifting ground.
-- It also requires humility and openness, because to seek context is already to acknowledge that you don’t have the whole story. And perhaps most important, an ecological understanding takes time. Context is what appears when you hold your attention open for long enough; the longer you hold it, the more context appears.
-- Go down the rabbit hole. Explore wildly different domains. Creativity generally involves crossing the boundaries of domains, so that for instance, a chemist who adopts quantum mechanics from physicals and applies it to molecular bonds can make a more substantive contribution to chemistry than one who stays exclusively within the bounds of chemistry. 
-- Being able to braid together ideas and emotions from disparate domains is one way writers express their creativity. 
-- Jack exuded boundless curiosity, joy of life, and great human warmth. Walking down hallways, he’d stick his head into every lab and stop and talk with people along the way. He’d ask about everything, but first and foremost, the latest experiment. Jack looked, listened, discussed, interpreted, proposed new experiments. 
-- Try to be surprised by something everyday. 
-- Life is nothing more than a stream of experiences - the more widely and deeply you swim in it, the richer your life will be. 
-- Don’t wait for the proverbial apple to fall on your head. Go out in the world and proactively seek experiences that will spark creative thinking. Interact with experts, immerse yourself in unfamiliar environments, and role-play customer scenarios. Inspiration is field by a deliberate, planned course of action.
-- How can you increase your deal flow of new ideas? Take a class? Read some unusual magazines or blogs? Listen to new music? Take a different route to work? Have coffee with someone who can teach you something new? Constantly seek out new sources of information. 
-- Expose yourself to ideas in hubs on a regular basis, but maintain a spoke in which to work deeply on what you encounter.
-	- Brattain and Bardeen worked together during this period in a small lab, often side by side, pushing each other toward better and more effective designs.
-	- Brattain would concentrate intensely to engineer an experimental design that could exploit Bardeen’s latest theoretical insight; then Bardeen would concentrate intensely to make sense of what Brattain’s latest experiments revealed, trying to expand his theoretical framework to match the observations.
-	- Therefore, the hub-and-spoke model provides a crucial template. Separate your pursuit of serendipitous encounters from your efforts to think deeply and build on these inspirations. You should try to optimize each effort separately, as opposed to mixing them together into a sludge that impedes both goals.
+## Show up. 
+- You need to create that space for yourself. The time, a physical environment. 
+- My job is to work hard and stay focused. 
+- In the end, it’s all about the work, isn’t it?
+- Show up for your work day after day after day after day.
+- It’s a simple and generous rule of life that whatever you practice, you’ll improve at. Just stay with the process and don’t panic. We’re meant to engage with inspiration, and inspiration wants to work with us. 
+- Keep it about the work. Focus on the work itself. Make that the thing. Not how successful you are or if your profile looks good, or whatever else. Focus on what interests you and make it about that. 
+- Practice the art, always reminding yourself that your job is to say what you see, and then to get on with your story.
+- Keep showing up. Even when you’re not feeling it. 
+- If you want to be a writer, you must do two things above all others: read a lot and write a lot. This sort of stylistic blending is a necessary part of developing one’s own style, but it doesn’t occur in a vacuum. You have to read widely, constantly refining (and redefining) your own work as you do so. Reading is the creative center of a writer’s life. I take a book with me everywhere I go, and find there are all sorts of opportunities to dip in. Reading takes time, and the glass teat takes too much of it.
+- The sort of strenuous reading and writing program I advocate—four to six hours a day, every day—will not seem strenuous if you really enjoy doing these things and have an aptitude for them; in fact, you may be following such a program already.
+- If “read a lot, write a lot” is the Great Commandment—and I assure you that it is—how much writing constitutes a lot?
+- he wrote for two and a half hours each morning before leaving for work. This schedule was ironclad. If he was in mid-sentence when the two and a half hours expired, he left that sentence unfinished until the next morning. And if he happened to finish one of his six-hundred-page heavyweights with fifteen minutes of the session remaining, he wrote The End, set the manuscript aside, and began work on the next book.
+- My own schedule is pretty clear-cut. Mornings belong to whatever is new—the current composition. Afternoons are for naps and letters. Evenings are for reading, family, Red Sox games on TV, and any revisions that just cannot wait. Basically, mornings are my prime writing time.
+- Once I start work on a project, I don’t stop and I don’t slow down unless I absolutely have to. If I don’t write every day, the characters begin to stale off in my mind
+- Still, I believe the first draft of a book—even a long one—should take no more than three months, the length of a season. I like to get ten pages a day, which amounts to 2,000 words. That’s 180,000 words over a three-month span, a goodish length for a book—something in which the reader can get happily lost, if the tale is done well and stays fresh.
+- If you’re a beginner, though, let me urge that you take your story through at least two drafts; the one you do with the study door closed and the one you do with it open.
+- With the door shut, downloading what’s in my head directly to the page, I write as fast as I can and still remain comfortable.
+- If I write rapidly, putting down my story exactly as it comes into my mind, only looking back to check the names of my characters and the relevant parts of their back stories, I find that I can keep up with my original enthusiasm and at the same time outrun the self-doubt that’s always waiting to settle in.
+- This first draft—the All-Story Draft—should be written with no help (or interference) from anyone else.
+- There’ll be time to show off what you’ve done when you finish  . . . . but even after finishing I think you must be cautious and give yourself a chance to think while the story is still like a field of freshly fallen snow, absent of any tracks save your own.
+- The great thing about writing with the door shut is that you find yourself forced to concentrate on story to the exclusion of practically everything else.
+- getting that first draft down on paper while the shape of the fossil is still bright and clear in your mind.
+- Like the Zen approach to archery or anything else, you identify the goal and then forget about it and concentrate on the process.
+- Heather Havrilesky: I love having a new chance to create something unexpectedly good each morning, even if that often means creating something unexpectedly bad, too. 
+	- “All I know is that I have to get up early, walk on my treadmill desk, and drink tea in order to access some functioning brain cells along with the will to make forward progress on any of it.”
+- Flow!!
+	- 9 main elements to describe how it feels when an experience is enjoyable:
+		- There are clear goals every step of the way - you know the next steps.
+			- having clear goals and expectations for whatever we do
+		- There is immediate feedback to one’s actions.
+		- There is a balance between challenges and skills - you’re walking a fine line between boredom and anxiety.
+		- Action and awareness are merged - our concentration is focused on what we do.
+		- Distractions are excluded from consciousness - aware only of what is relevant here and now, an intense concentration on the present, which relieves us of the usual fears that cause depression and anxiety in everyday life.
+			- concentrating on the task at hand without distraction
+		- There is no worry of failure - in flow, it is clear what has to be done, and our skills are potentially adequate to the challenges.
+		- Self-consciousness disappears - in flow, we are too involved in what we are doing to care about the ego ; paradoxically, the self expands through acts of self-forgetfulness.
+		- The sense of time becomes distorted.
+		- The activity becomes autotelic - in many ways, the secret to a happy life is to learn and to get flow from as many of the things we have to do as possible. 
+	- Still deeply involved in tasks that are exciting and rewarding.
+	- I always try to make the most important task the one that I am working on. 
+	- Seinfeld began his advice to Isaac with some common sense, noting “the way to be a better comic was to create better jokes,” and then explaining that the way to create better jokes was to write every day. Seinfeld continued by describing a specific technique he used to help maintain this discipline. He keeps a calendar on his wall. Every day that he writes jokes he crosses out the date on the calendar with a big red X. “After a few days you’ll have a chain,” Seinfeld said. “Just keep at it and the chain will grow longer every day. You’ll like seeing that chain, especially when you get a few weeks under your belt. Your only job next is to not break the chain.”
 
-## Create space.
+### Have time that is yours, and yours alone. 
+
+Creative individuals have a great deal of physical energy, but they are also often quiet and at rest. They work long hours, with great concentration, while projecting an aura of freshness and enthusiasm. The energy of these people is internally generated. This does not mean that creative persons are hyperactive, always “on,” constantly churning away. In fact, they often take rests and sleep a lot. The important thing is that the energy is under their own control - it is not controlled by the calendar, the clock, an external schedule. They consider the rhythm of activity followed by idleness or reflection very important for the success of their work. 
+- PN: Yep, ties exactly to what Jenny Odell was saying with being “on” and “off”
+	- PN: Having control over your time and energy is interesting and is NOT something I had captured here but is pretty obvious. If you don’t have control over your time and energy, how are you supposed to leverage that time for creative work? The question then becomes, how does one go about gaining control over their time and energy when working a day job, or being a parent, etc? 
+		- What counts is to be a master of one’s own time. 
+		- Beyond luck and external factors, what allows certain individuals to make memorable contributions to the culture is a personal resolution to shape their lives to suit their own goals instead of letting external forces run their destiny. They created their own lives. 
+		- A laid-back approach is the way you can do it, better than getting all uptight
+	- Okay, this also relates to the Ask Polly columns I was reading earlier today. Some quotes from Heather Havrilesky below:
+		- “offices, which are places where all sense of time and space evaporate and all connection to your own desires and longings, to your own humanity, to the natural rhythms of existence, steadily erode until your life feels like a shadow, haunting a dim facsimile of what a life is supposed to feel like.”
+
+### Create space.
 - Sit quietly. Listen. Be present. Reduce multitasking because that wears down the brain. Depends on when you’re doing your creative work. Find the time of day that works best for you.
 - Traveler’s mindset
 	- Apply a beginner’s mind to something you do or see every day: commuting to work, eating dinner, preparing for a meeting. Look for new insights about familiar things, think of it as a treasure hunt. 
@@ -263,88 +293,7 @@
 		- Never let more than ninety minutes pass without doing something to refresh your mind and body—if possible, by stretching your legs and getting a brief change of scene.
 		- But I’ve found that if I give people a fifteen-minute break at that point, they return full of resolve and focus, making it possible for us to continue productively for another ninety minutes.
 
-## Give yourself a deadline.
-- PN: I have honestly never done this before when it comes to my creative work. I hate deadlines. But I keep hearing it’s a useful forcing function for producing work, and here I am having produced nothing, so why not try it? I’ve also experienced the effects of having a very clear deadline and audience for a thing. When I’ve needed to prep a talk I’m giving for work, my thinking becomes clearer, I’m more engaged, and more likely to think of that thing that is going to refine my thinking even more. Jenny Odell says that if it wasn’t for the fact that she needed to prep a talk for EYEO, How to Do Nothing would have never happened. Deadlines might secretly rule. Also, prompts! Give yourself prompts and things to think and write about. 
-	- Monthly competition amongst students. Every month, a new set of problems was published in the intramural math journal, and the students discussed and debated them at length in their free time.
-- What creative project could you tackle by focusing on it for half an hour each day before work?
-- Roosevelt dashes leverage artificial deadlines to help you systematically increase the level you can regularly achieve—providing, in some sense, interval training for the attention centers of your brain.
-
-## Show the fuck up.
-- My job is to work hard and stay focused. 
-- In the end, it’s all about the work, isn’t it?
-- Show up for your work day after day after day after day.
-- It’s a simple and generous rule of life that whatever you practice, you’ll improve at. Just stay with the process and don’t panic. We’re meant to engage with inspiration, and inspiration wants to work with us. 
-- Keep it about the work. Focus on the work itself. Make that the thing. Not how successful you are or if your profile looks good, or whatever else. Focus on what interests you and make it about that. 
-- Practice the art, always reminding yourself that your job is to say what you see, and then to get on with your story.
-- Keep showing up. Even when you’re not feeling it. 
-- If you want to be a writer, you must do two things above all others: read a lot and write a lot. This sort of stylistic blending is a necessary part of developing one’s own style, but it doesn’t occur in a vacuum. You have to read widely, constantly refining (and redefining) your own work as you do so. Reading is the creative center of a writer’s life. I take a book with me everywhere I go, and find there are all sorts of opportunities to dip in. Reading takes time, and the glass teat takes too much of it.
-- The sort of strenuous reading and writing program I advocate—four to six hours a day, every day—will not seem strenuous if you really enjoy doing these things and have an aptitude for them; in fact, you may be following such a program already.
-- If “read a lot, write a lot” is the Great Commandment—and I assure you that it is—how much writing constitutes a lot?
-- he wrote for two and a half hours each morning before leaving for work. This schedule was ironclad. If he was in mid-sentence when the two and a half hours expired, he left that sentence unfinished until the next morning. And if he happened to finish one of his six-hundred-page heavyweights with fifteen minutes of the session remaining, he wrote The End, set the manuscript aside, and began work on the next book.
-- My own schedule is pretty clear-cut. Mornings belong to whatever is new—the current composition. Afternoons are for naps and letters. Evenings are for reading, family, Red Sox games on TV, and any revisions that just cannot wait. Basically, mornings are my prime writing time.
-- Once I start work on a project, I don’t stop and I don’t slow down unless I absolutely have to. If I don’t write every day, the characters begin to stale off in my mind
-- Still, I believe the first draft of a book—even a long one—should take no more than three months, the length of a season. I like to get ten pages a day, which amounts to 2,000 words. That’s 180,000 words over a three-month span, a goodish length for a book—something in which the reader can get happily lost, if the tale is done well and stays fresh.
-- If you’re a beginner, though, let me urge that you take your story through at least two drafts; the one you do with the study door closed and the one you do with it open.
-- With the door shut, downloading what’s in my head directly to the page, I write as fast as I can and still remain comfortable.
-- If I write rapidly, putting down my story exactly as it comes into my mind, only looking back to check the names of my characters and the relevant parts of their back stories, I find that I can keep up with my original enthusiasm and at the same time outrun the self-doubt that’s always waiting to settle in.
-- This first draft—the All-Story Draft—should be written with no help (or interference) from anyone else.
-- There’ll be time to show off what you’ve done when you finish  . . . . but even after finishing I think you must be cautious and give yourself a chance to think while the story is still like a field of freshly fallen snow, absent of any tracks save your own.
-- The great thing about writing with the door shut is that you find yourself forced to concentrate on story to the exclusion of practically everything else.
-- getting that first draft down on paper while the shape of the fossil is still bright and clear in your mind.
-- Like the Zen approach to archery or anything else, you identify the goal and then forget about it and concentrate on the process.
-- Heather Havrilesky: I love having a new chance to create something unexpectedly good each morning, even if that often means creating something unexpectedly bad, too. 
-	- “All I know is that I have to get up early, walk on my treadmill desk, and drink tea in order to access some functioning brain cells along with the will to make forward progress on any of it.”
-- Flow!!
-	- 9 main elements to describe how it feels when an experience is enjoyable:
-		- There are clear goals every step of the way - you know the next steps.
-			- having clear goals and expectations for whatever we do
-		- There is immediate feedback to one’s actions.
-		- There is a balance between challenges and skills - you’re walking a fine line between boredom and anxiety.
-		- Action and awareness are merged - our concentration is focused on what we do.
-		- Distractions are excluded from consciousness - aware only of what is relevant here and now, an intense concentration on the present, which relieves us of the usual fears that cause depression and anxiety in everyday life.
-			- concentrating on the task at hand without distraction
-		- There is no worry of failure - in flow, it is clear what has to be done, and our skills are potentially adequate to the challenges.
-		- Self-consciousness disappears - in flow, we are too involved in what we are doing to care about the ego ; paradoxically, the self expands through acts of self-forgetfulness.
-		- The sense of time becomes distorted.
-		- The activity becomes autotelic - in many ways, the secret to a happy life is to learn and to get flow from as many of the things we have to do as possible. 
-	- Still deeply involved in tasks that are exciting and rewarding.
-	- I always try to make the most important task the one that I am working on. 
-	- Seinfeld began his advice to Isaac with some common sense, noting “the way to be a better comic was to create better jokes,” and then explaining that the way to create better jokes was to write every day. Seinfeld continued by describing a specific technique he used to help maintain this discipline. He keeps a calendar on his wall. Every day that he writes jokes he crosses out the date on the calendar with a big red X. “After a few days you’ll have a chain,” Seinfeld said. “Just keep at it and the chain will grow longer every day. You’ll like seeing that chain, especially when you get a few weeks under your belt. Your only job next is to not break the chain.”
-
-## Creativity is a muse. Treat it like one.
-- Give your creativity a name or something. Make it be a muse if that makes you feel less pressure. You’re trying to make yourself as receptive and open to the muse as possible. Keeping your mind engaged. If you’re in service to this other being this other entity, rather than responsible to yourself, I find it eases the pressure. This outside force wants to work through you, you just need to let it. It’s not about you failing to live up to your own god damn potential. 
-- It’s a subtle but important distinction between being a genius, and having a genius. When artists are burdened with the label of “genius” they run the risk of losing the ability to take themselves lightly, or to create freely. Rather than being a genius, the Greeks and Romans both believed in the idea of an external daemon of creativity, a sort of house elf you lived within the walls of your home and aided you in your efforts. The Romans didn’t believe an exceptionally gifted person was a genius, they believed they had a genius.
-- Try to present yourself to your creativity as if you are sexy — as if you are somebody worth spending time with. 
-- Take you out of yourself. 
-- ^^ I am so obsessed with the above and I’ve heard others describe it as such
-- Present yourself well. Get dressed to do the work. 
-- The work wants to be made, and it wants to be made through you.
-- good story ideas seem to come quite literally from nowhere, sailing at you right out of the empty sky: two previously unrelated ideas come together and make something new under the sun. Your job isn’t to find these ideas but to recognize them when they show up.
-- These alien creatures got into your head and just started  . . . . well, tommyknocking around in there. What you got was energy and a kind of superficial intelligence (the writer, Bobbi Anderson, creates a telepathic typewriter and an atomic hot-water heater, among other things). What you gave up in exchange was your soul. It was the best metaphor for drugs and alcohol my tired, overstressed mind could come up with.
-- At its most basic we are only discussing a learned skill, but do we not agree that sometimes the most basic skills can create things far beyond our expectations? We are talking about tools and carpentry, about words and style  . . . . but as we move along, you’d do well to remember that we are also talking about magic.
-- There is a muse, but he’s not going to come fluttering down into your writing room and scatter creative fairy-dust all over your typewriter or computer station. He lives in the ground. He’s a basement guy. You have to descend to his level, and once you get down there you have to furnish an apartment for him to live in. You have to do all the grunt labor, in other words, while the muse sits and smokes cigars and admires his bowling trophies and pretends to ignore you. Do you think this is fair? I think it’s fair. He may not be much to look at, that muse-guy, and he may not be much of a conversationalist (what I get out of mine is mostly surly grunts, unless he’s on duty), but he’s got the inspiration. It’s right that you should do all the work and burn all the midnight oil, because the guy with the cigar and the little wings has got a bag of magic. There’s stuff in there that can change your life.
-- Personal note: Playing the role of a paleontologist or archaeologist or a sculptor. Have seen those metaphors get thrown out a lot by both Gilbert and King. 
-- I want you to understand that my basic belief about the making of stories is that they pretty much make themselves.
-- I believed stories are found things, like fossils…
-- Stories are relics, part of an undiscovered pre-existing world. The writer’s job is to use the tools in his or her toolbox to get as much of each one out of the ground intact as possible. Sometimes the fossil you uncover is small; a seashell. Sometimes it’s enormous, a Tyrannosaurus Rex with all those gigantic ribs and grinning teeth.
-- No matter how good you are, no matter how much experience you have, it’s probably impossible to get the entire fossil out of the ground without a few breaks and losses. To get even most of it, the shovel must give way to more…
-- Plot is a far bigger tool, the writer’s jackhammer. You can liberate a fossil from hard ground with a jackhammer, no argument there, but you know as well as I do that the jackhammer is going to break almost as much stuff as it liberates. It’s clumsy, mechanical, anticreative. Plot is, I think, the good writer’s last resort and the dullard’…
-- A strong enough situation renders the whole question of plot moot, which is fine with me. The most interesting situations can usually be expressed as a What-if question:
-	- What if vampires invaded a small New England village? (‘Salem’s Lot)
-	- What if a policeman in a remote Nevada town went berserk and started killing everyone in sight? (Desperation)
-	- What if a cleaning woman suspected of a murder she got away with (her husband) fell under suspicion for a murder she did not commit (her employer)?
-	- What if a young mother and her son became trapped in their stalled car by a rabid dog?
-	- These were all situations which occurred to me—while showering, while driving, while taking my daily walk—and which I eventually turned into books.
-- I think that, when you read your manuscript over (and when you talk it over), you’ll see if symbolism, or the potential for it, exists. If it doesn’t, leave well enough alone. If it does, however—if it’s clearly a part of the fossil you’re working to unearth—go for it.
-- Personal note: This idea that I’m just the person uncovering things that already exist (a paleontologist uncovering fossils), than someone coming up with entirely new ideas out of thin air. 
-- People are not geniuses. They have geniuses, which is this entirely separate kind of creature or entity that lives within the walls of your home and aids you in your efforts.
-- Personal note: you can still set boundaries and guidelines. Like, this is what we think the shape thing is, and here are the qualities we really care about. But keeping the shape large early on, and whittling it down from there, like you’re excavating a dinosaur of creating a sculpture, and being careful to not be overly prescriptive too early in the process. 
-- Personal note: It’s not bringing something to life, it’s unearthing it. 
-- I read this elsewhere and it’s relevant here, need to find the original quote: It’s a sculptor who knows there is something hidden within the marble, it’s her job to find it and excavate it. 
-- Personal note: You’re just uncovering stuff that’s already there. That takes the pressure off it. You just have to be open and paying attention. 
-- Ideas need supporters, carriers, and executers to become real. 
-
-## Produce.
+### Your job is to produce.
 - Quantity of work over quality. Focus on doing, on making, on producing. The more you do, the better your work will become. 
 	- The parable of the two pottery classes — one was graded based on how many pots they made over the course of a semester, and the other was graded based on the quality of a single pot. The class judged on quantity ended up inevitably producing better pots than the class that over-indexed on quality.
 	- Creative people simply do more experiments. That ultimate stroke of genius doesn’t come about because they succeed more often than other people — they just do more, period.
@@ -356,94 +305,41 @@
 - Initiate action, launch rapid innovation cycles, learn by doing as soon as you can. 
 - The first step to being creative is often simply to go beyond being a passive observer and to translate thoughts into deeds.
 
+## Savor the work.
+- “Learn to savor the work itself…And not only is it harder to finish creative work when you view it as a means to an end — a path to a shinier, more important life…” “Forcibly remove the question mark. Are you writing almost every day? Well then, congratulations. You’re a writer. You’ve arrived.” 
+- Heather Havrilesky: “I want to strongly recommend that you learn to create a giddy bubble, a Bizarro world, in which you are a fucking creative genius whether or not you have an impressive body of work to your credit. Each day, celebrate your most minor word-crafting victories; cheer on your most constipated, tedious paragraphs; and use the writing process to enjoy your freaky gray matter until every single writing session emulates the feeling of being a drunk, stoned, young, gorgeous ballerina living on Mars. That is the point, the purpose, the peak: to enjoy the world you inhabit when you write. You take foolish leaps, you meander, you invite edits, you revisit your own words lovingly but patiently. You’re smug and grandiose and insufferable? Of course! That’s the goal, dummies! If you’re living right, you find yourself chuckling amiably at your own beauty, your grace, your effortless pirouettes of boozy wordsmithery. “Life as a ballerina on motherfucking Mars is good,” you tell yourself. And in that moment, it is. That’s what matters.
+	- No matter what you do for a living, the only thing you’ll get more and more and more of is hard work. So figure out what kind of hard work feels satisfying to you. Learn to enjoy the hard work, and learn to enjoy the times when you’re not working, and you’ll learn to enjoy life itself. And when you have a tough day, by yourself, not writing a word, remember that your goal is not just about one day’s production, or about making a name for yourself, or about achieving perfect independence and financial security. Your goal is to enjoy your life, period. Your path is unique and very difficult, and it doesn’t lead to some promised land. The path itself is all there is.
 
-## Take care of yourself.
-- Simple understanding that whatever is bad for you is probably bad for your work.
-- I’m suggesting that we protect our spaces and our time for non-instrumental, noncommercial activity and thought, for maintenance, for care, for conviviality.
-- As John Muir once said, “Longest is the life that contains the largest amount of time-effacing enjoyment.”
-- But if you do, make it “self-care” in the activist sense that Audre Lorde meant it in the 1980s, when she said that “caring for myself is not self-indulgence, it is self preservation, and that is an act of political warfare.”
+### Immerse yourself.
+- Seek inspiration, all the time.
+- Look to the past for inspiration as well as the present. Be evaluating works that are both recognized today, as well as those that were recognized in the past. 
+	- Personal note: Work that was produced a long time ago, in a different context, takes on new meaning in present day. The past can be cross-examined and modernized to create something entirely new.
+- Inspiration comes from other people, research.
+- Let these things breathe new life into your thinking and imagination.
+- When you’re inspired, ideas living within us will find a way to be expressed
+- Binge. Feed your mind with information, ideas and inspiration related to your subject. Fill your brain. Get it so full of information. Go off on tangents. Follow your interests. And when your head is full, stop. 
+- Be mindful of what you consume. When you’re consuming, you’re not creating, and thinking for yourself. That doesn’t mean going cold turkey on any media. It just means being conscious and thoughtful about what you do decide to consume, and making sure you’re giving yourself time and space for your own thinking to simmer and bubble up. 
+	- Information today as a kind of assault. Context-less, hitting you in the face, causing whiplash. 
+	- By spending too much time on social media and chained to the news cycle, he says, “you are marinating yourself in the conventional wisdom. In other people’s reality: for others, not for yourself. You are creating a cacophony in which it is impossible to hear your own voice, whether it’s yourself you’re thinking about or anything else.”
+	- Given the current reality of my digital environment, distance for me usually means things like going on a walk or even a trip, staying off the Internet, or trying not to read the news for a while.
+	- Computer literacy is more a question of learning to be a consumer of information than knowing how to generate or use the information acquired.
+		\* 
+- Bioregionalism teaches us of emergence, interdependence, and the impossibility of absolute boundaries. As physical beings, we are literally open to the world, suffused every second with air from somewhere else; as social beings, we are equally determined by our contexts. If we can embrace that, then we can begin to appreciate our and others’ identities as the emergent and fluid wonders that they are.
+- Most of all, we can open ourselves to those new and previously unimaginable ideas that may arise from our combination, like the lightning that happens between an evanescent cloud and the ever-shifting ground.
+- It also requires humility and openness, because to seek context is already to acknowledge that you don’t have the whole story. And perhaps most important, an ecological understanding takes time. Context is what appears when you hold your attention open for long enough; the longer you hold it, the more context appears.
+- Go down the rabbit hole. Explore wildly different domains. Creativity generally involves crossing the boundaries of domains, so that for instance, a chemist who adopts quantum mechanics from physicals and applies it to molecular bonds can make a more substantive contribution to chemistry than one who stays exclusively within the bounds of chemistry. 
+- Being able to braid together ideas and emotions from disparate domains is one way writers express their creativity. 
+- Jack exuded boundless curiosity, joy of life, and great human warmth. Walking down hallways, he’d stick his head into every lab and stop and talk with people along the way. He’d ask about everything, but first and foremost, the latest experiment. Jack looked, listened, discussed, interpreted, proposed new experiments. 
+- Try to be surprised by something everyday. 
+- Life is nothing more than a stream of experiences - the more widely and deeply you swim in it, the richer your life will be. 
+- Don’t wait for the proverbial apple to fall on your head. Go out in the world and proactively seek experiences that will spark creative thinking. Interact with experts, immerse yourself in unfamiliar environments, and role-play customer scenarios. Inspiration is field by a deliberate, planned course of action.
+- How can you increase your deal flow of new ideas? Take a class? Read some unusual magazines or blogs? Listen to new music? Take a different route to work? Have coffee with someone who can teach you something new? Constantly seek out new sources of information. 
+- Expose yourself to ideas in hubs on a regular basis, but maintain a spoke in which to work deeply on what you encounter.
+	- Brattain and Bardeen worked together during this period in a small lab, often side by side, pushing each other toward better and more effective designs.
+	- Brattain would concentrate intensely to engineer an experimental design that could exploit Bardeen’s latest theoretical insight; then Bardeen would concentrate intensely to make sense of what Brattain’s latest experiments revealed, trying to expand his theoretical framework to match the observations.
+	- Therefore, the hub-and-spoke model provides a crucial template. Separate your pursuit of serendipitous encounters from your efforts to think deeply and build on these inspirations. You should try to optimize each effort separately, as opposed to mixing them together into a sludge that impedes both goals.
 
-## Take a fucking break.
-- When your head is full, stop. Take a break. Fuck around. Don’t do anything related to your project, because this is when the really hardworking part of your brain goes into high gear. Go for a walk or a run. These low cognitive load activities are pretty amazing at creating the space you need for your brain to make connections. Relax, live, absorb.
-- Step away to gain a new perspective. 
-- Make a list of things that interest or inspire you — seeing movies, visiting museums and art galleries, getting back to nature by going to far hike or gardening, traveling whenever or wherever you can, and reading at every opportunity. Doing unfamiliar things puts you in a learning mode that refills the web quickly.
-- If you write a novel, spend weeks and then months catching it word by word, you owe it both to the book and to yourself to lean back (or take a long walk) when you’ve finished and ask yourself why you bothered—why you spent all that time, why it seemed so important. In other words, what’s it all about, Alfie?
-- You’ve done a lot of work and you need a period of time (how much or how little depends on the individual writer) to rest. Your mind and imagination—two things which are related, but not really the same—have to recycle themselves, at least in regard to this one particular work. My advice is that you take a couple of days off—go fishing, go kayaking, do a jigsaw puzzle—and then go to work on something else. Something shorter, preferably, and something that’s a complete change of direction and pace from your newly finished book.
-- How long you let your book rest—sort of like bread dough between kneadings—is entirely up to you, but I think it should be a minimum of six weeks. During this time your manuscript will be safely shut away in a desk drawer, aging and (one hopes) mellowing.
-- You’re not, though, and you’re not ready to go back to the old project until you’ve gotten so involved in a new one (or re-involved in your day-to-day life) that you’ve almost forgotten the unreal estate that took up three hours of your every morning or afternoon for a period of three or five or seven months.
-- When you come to the correct evening (which you well may have marked on your office calendar), take your manuscript out of the drawer. If it looks like an alien relic bought at a junk-shop or yard sale where you can hardly remember stopping, you’re ready.
-- And it takes a break to remember that: a break to do nothing, to just listen, to remember in the deepest sense what, when, and where we are.
-- I consider “doing nothing” both as a kind of deprogramming device and as sustenance for those feeling too disassembled to act meaningfully.
-- When overstimulation has become a fact of life, I suggest that we reimagine #FOMO as #NOMO, the necessity of missing out. 
-- The last stage of elaboration is constantly interrupted by periods of incubation and is punctuated by small epiphanies. Many fresh insights emerge as one is presumably just putting finishing touches on the initial insight. 
-- TON above that needs to move into this space. 
-- It is very important to be idle. People who keep themselves busy all the time are generally not creative.
-- Jog or garden when she runs dry of ideas. 
-- The importance of letting ideas make connections with each other without external distractions. 
-	- Mental meandering, walking to work
-	- If you’re allowing that mentation to be driven by the radio or the television or other people’s conversations, you are just cutting down on your exploratory, your intellectual exploratory time. 
-		- ^ Ties back to the importance of what you choose to consume.
-- Keeping the mind open and flexible to notice when new ideas, new problems, and new insights arise out of the interaction with the medium. One must pay attention to one’s goals and feelings to know whether the work is indeed proceeding as intended. 
-	- keeping the mind open and flexible, paying attention, staying open.
-- I had been kind of tired, working Saturdays and Sundays, and I had gone to Italy for a week, just to get away. I went first to Rome for a couple days, then I went up to Florence. I’d get up early in the morning, and I’d wander around, and I sat on a park bench, sort of between seven in the morning and noon, then in the afternoon I’d go visit museums and whatever. And I had a notebook, an Italian notebook, and I wrote myself long essays on what was going on and what I was worried about. And it helped me get my mind organized. Then in the afternoons I wouldn’t do anything. 
-- People report feeling their most creative when involved in a semiautomatic activity that takes up a certain amount of attention, while leaving some of it free to make connections among ideas below the threshold of conscious intentionality. Devoting full attention to a problem is not the best recipe for having creative thoughts. 
-- Our minds make unlikely connections between ideas, memories, and experiences when we’re at rest and not focused on a specific task. 
-- All truly great thoughts are conceived by walking. 
-- Engage relaxed attention: Flashes of insight often come when your mind is relaxed and not focused on completing a specific task , allowing the mind to make new connections between seemingly unrelated ideas.
-- At the end of the workday, shut down your consideration of work issues until the next morning—no after-dinner e-mail check, no mental replays of conversations, and no scheming about how you’ll handle an upcoming challenge; shut down work thinking completely. If you need more time, then extend your workday, but once you shut down, your mind must be left free to encounter Kreider’s buttercups, stink bugs, and stars.
-	- This strategy argues that you should follow Kreider’s lead by injecting regular and substantial freedom from professional concerns into your day, providing you with the idleness paradoxically required to get (deep) work done.
-	- In other words, to actively try to work through these decisions will lead to a worse outcome than loading up the relevant information and then moving on to something else while letting the subconscious layers of your mind mull things over.
-	- Any work you do fit into the night, therefore, won’t be the type of high-value activities that really advance your career; your efforts will instead likely be confined to low-value shallow tasks (executed at a slow, low-energy pace). By deferring evening work, in other words, you’re not missing out on much of importance.
-	- To succeed with this strategy, you must first accept the commitment that once your workday shuts down, you cannot allow even the smallest incursion of professional concerns into your field of attention. This includes, crucially, checking e-mail, as well as browsing work-related websites.
-	- In more detail, this ritual should ensure that every incomplete task, goal, or project has been reviewed and that for each you have confirmed that either (1) you have a plan you trust for its completion, or (2) it’s captured in a place where it will be revisited when the time is right.
-		- PN: Maybe a section on “I have a day job, how can I be creative?”
-- Having a casual conversation with a friend, listening to music while making dinner, playing a game with your kids, going for a run—the types of activities that will fill your time in the evening if you enforce a work shutdown—play the same attention-restoring role as walking in nature.
-- Only the confidence that you’re done with work until the next day can convince your brain to downshift to the level where it can begin to recharge for the next day to follow.
-- regularly resting your brain improves the quality of your deep work. When you work, work hard. When you’re done, be done.
-- It is important to schedule times in the day, the week, and the year just to take stock of your life and review what you have accomplished and what remains to be done.
-- whether you intend it or not, new ideas and conclusions will emerge in your subconscious anyway — and the less you try to direct the process, the more creative they are likely to be. 
-- typical activities that facilitate subconscious creative processes are walking, driving, showering, swimming, carpentry, gardening, etc. 
-- you should alternate stress with periods of relaxation. Relaxation can just mean doing something totally different from your usual tasks, like art, rock climbing, etc. 
-
-## Share your work.
-- Share your stuff and show your work to people around you.
-- Making things, sharing those things with an open heart and no expectations.
-- Also, needy or not, you might want to watch and see when your I.R. puts your manuscript down to do something else. What scene was he or she reading? What was so easy to put down?
-- You need to listen very carefully to the things I.R. didn’t understand, and then ask yourself if you understand them. If you do and just didn’t put those parts across, your job on the second draft is to clarify. If you don’t—if the parts of the back story your Ideal Reader queried are hazy to you, as well—then you need to think a lot more carefully about the past events that cast a light on your characters’ present behavior.
-- In the very same essay, he mentions the importance of having a close friend to have real and substantive conversations with.
-- The book you are reading—as I would guess is the case with most books—is the result of many conversations I’ve had over the course of many years, in my case with both humans and nonhumans. Many of them happened while I was writing this, and all of them changed my mind. Now, as you read it, this book forms a conversation with you as well.
-- Meanwhile, countless examples from history and ecological science teach us that a diverse community with a complex web of interdependencies is not only richer but more resistant to takeover. When I read Schulman’s The Gentrification of the Mind, I picture the difference between a permaculture farm and a commercial corn farm that could be devastated by a single parasite.
-	- Personal Note: DIVERSITY OF SOURCES, VOICES, IDEAS THAT YOU CAN BUILD ON AND MERGE WITH OTHER IDEAS INTO SOMETHING NEW
-- I don’t bring my phone or any device during the run. I develop ideas locally, and reserve them (stage them, as in github terminology) and share them once I’m ready for more encounters.
-- When I try to imagine a sane social network it is a space of appearance: a hybrid of mediated and in-person encounters, of hours-long walks with a friend, of phone conversations, of closed group chats, of town halls.
-
-
-## Refine.
-- For me the answer has always been two drafts and a polish 
-- Sit down with your door shut (you’ll be opening it to the world soon enough), a pencil in your hand, and a legal pad by your side. Then read your manuscript over.
-- Do it all in one sitting, if that’s possible (it won’t be, of course, if your book is a four- or five-hundred-pager).
-- Make all the notes you want, but concentrate on the mundane housekeeping jobs, like fixing misspellings and picking up inconsistencies.
-- With six weeks’ worth of recuperation time, you’ll also be able to see any glaring holes in the plot or character development. I’m talking about holes big enough to drive a truck through. It’s amazing how some of these things can elude the writer while he or she is occupied with the daily work of composition. And listen—if you spot a few of these big holes, you are forbidden to feel depressed about them or to beat up on yourself.
-
-## Capture ideas.
-- Keep one or multiple types of writing instruments to capture ideas and impulses. Ideas can be fleeting. I have a little notebook, but I also jot things down in my Things apps and file them away in the Someday tab. Organization isn’t super important, the main thing is to get the ideas down.
-- All of them keep notebooks handy for when the voice of the muse calls, which tends to be early in the morning while the writer is still in bed, half asleep. Most of them have been keeping a diary for many years. They usually start a working day with a word, a phrase, or an image, rather than a concept or planned composition 
-- Try to surprise at least one person every day.
-	- More of a tool, obviously not a way to capture ideas. But a tool that you can leverage to engage more richly and deeply in life.
-- Write down each day what surprised you and how you surprised others. Most creative people keep a diary, or notes, or lab records to make their experiences more concrete and enduring. Record each evening the most surprising event that happened that day and your most surprising action. After a few days, you can reread what you have written and reflect on those experiences.
-
-## Work on several projects at once using mixed methods.
-- This is again a common pattern among creative individuals, it keeps them from getting bored or stymied, and it produces unexpected cross-fertilization of ideas.
-- There are at least four different approaches that Wilson commonly uses. The first is fieldwork, in exotic places which acts as a sort of “nuclear fuel” by providing concrete data and experiences to be elaborated later. The second is attending lectures and meetings where he absorbs from other experts the latest developments in domains that interest him. The third is night-work , the serendipitous connection between ideas that unexpectedly arise upon waking up int he middle of the night. And finally, there is the systematic work that takes place. From morning to early afternoon, which also includes reading, writing, mathematical modeling, and drawing specimens. 
-
-## Metaphors.
-- The idea of the lone hunter, or the lone voyager or explorer, who’s guided by his or her principles and is going to get there against all odds, that self-image, is a very powerful force in making a major scientist.
-- Spaceship Earth (Buckminster Fuller)
-- They all see themselves as primarily synthesizers. They compare what they do to the work of a detective or an explorer. 
-- On one level I feel like an extraterrestrial. I’m visiting here for a while. And I’m also in human form. I’m very emotionally attached to the species. And so I have incarnated myself at this time. Abut I have also an infinite aspect to myself. It. All kind of hangs together quite easily for me. It sounds flippant, but the thing is that this is a spirituous practice for me. 
-- I’m thinking all the time about the different metaphors we use and how they determine our understanding of how reality works.
-
-## Hone your process.
+### Hone your process.
 - Building a routine.
 	- To build your working life around the experience of flow produced by deep work is a proven path to deep satisfaction.
 - Your schedule—in at about the same time every day, out when your thousand words are on paper or disk—exists in order to habituate yourself, to make yourself ready to dream just as you make yourself ready to sleep by going to bed at roughly the same time each night and following the same ritual as you go.
@@ -483,7 +379,7 @@
 	- Do you have five things you’d like to tackle today, but know you probably only have time for three? It’s better to feel great about nailing three tasks. If you succeed and find you’ve got more time, you’ll be flushed with motivation to seek out one or two more tasks.
 	- Put exercise, rest, and other physical health goals on your list alongside your other tasks. If you take a moment to put “take a walk” on the list, you’re way more likely to build it into your day rather than let it be crowded out by other demands—just as defining goals for anything makes it more likely you’ll get it done.
 
-## Tools.
+### Tools.
 - Not really tools, but whatever. This is a section to place things adjacent to creativity. Like the stuff you need to be mindful of in the hours when you’re not being creative. This is the shit I struggle with _all of the time._ 
 - We can hold 3 or 4 pieces of information in our brain at most.
 - It takes very little to put our brains into defensive mode, and we’re not at our smartest in that mode. However, a dose of self-awareness and the pursuit of certain types of rewards can help us move back into clearer-thinking discovery mode.
@@ -542,8 +438,151 @@
 	- PN: start small, try things, iterate and tweak
 	- Try one way of going about the problem, and then take a different tack for a bit. Compare results. Continuous experimentation and revision.
 	- The longer you can keep your options open, the more likely it is your solution will be both original and appropriate. 
-		- 
 
+
+
+
+
+## Take breaks.
+
+### Take care of yourself.
+- Simple understanding that whatever is bad for you is probably bad for your work.
+- I’m suggesting that we protect our spaces and our time for non-instrumental, noncommercial activity and thought, for maintenance, for care, for conviviality.
+- As John Muir once said, “Longest is the life that contains the largest amount of time-effacing enjoyment.”
+- But if you do, make it “self-care” in the activist sense that Audre Lorde meant it in the 1980s, when she said that “caring for myself is not self-indulgence, it is self preservation, and that is an act of political warfare.”
+
+### Take a fucking break.
+- When your head is full, stop. Take a break. Fuck around. Don’t do anything related to your project, because this is when the really hardworking part of your brain goes into high gear. Go for a walk or a run. These low cognitive load activities are pretty amazing at creating the space you need for your brain to make connections. Relax, live, absorb.
+- Step away to gain a new perspective. 
+- Make a list of things that interest or inspire you — seeing movies, visiting museums and art galleries, getting back to nature by going to far hike or gardening, traveling whenever or wherever you can, and reading at every opportunity. Doing unfamiliar things puts you in a learning mode that refills the web quickly.
+- If you write a novel, spend weeks and then months catching it word by word, you owe it both to the book and to yourself to lean back (or take a long walk) when you’ve finished and ask yourself why you bothered—why you spent all that time, why it seemed so important. In other words, what’s it all about, Alfie?
+- You’ve done a lot of work and you need a period of time (how much or how little depends on the individual writer) to rest. Your mind and imagination—two things which are related, but not really the same—have to recycle themselves, at least in regard to this one particular work. My advice is that you take a couple of days off—go fishing, go kayaking, do a jigsaw puzzle—and then go to work on something else. Something shorter, preferably, and something that’s a complete change of direction and pace from your newly finished book.
+- How long you let your book rest—sort of like bread dough between kneadings—is entirely up to you, but I think it should be a minimum of six weeks. During this time your manuscript will be safely shut away in a desk drawer, aging and (one hopes) mellowing.
+- You’re not, though, and you’re not ready to go back to the old project until you’ve gotten so involved in a new one (or re-involved in your day-to-day life) that you’ve almost forgotten the unreal estate that took up three hours of your every morning or afternoon for a period of three or five or seven months.
+- When you come to the correct evening (which you well may have marked on your office calendar), take your manuscript out of the drawer. If it looks like an alien relic bought at a junk-shop or yard sale where you can hardly remember stopping, you’re ready.
+- And it takes a break to remember that: a break to do nothing, to just listen, to remember in the deepest sense what, when, and where we are.
+- I consider “doing nothing” both as a kind of deprogramming device and as sustenance for those feeling too disassembled to act meaningfully.
+- When overstimulation has become a fact of life, I suggest that we reimagine #FOMO as #NOMO, the necessity of missing out. 
+- The last stage of elaboration is constantly interrupted by periods of incubation and is punctuated by small epiphanies. Many fresh insights emerge as one is presumably just putting finishing touches on the initial insight. 
+- TON above that needs to move into this space. 
+- It is very important to be idle. People who keep themselves busy all the time are generally not creative.
+- Jog or garden when she runs dry of ideas. 
+- The importance of letting ideas make connections with each other without external distractions. 
+	- Mental meandering, walking to work
+	- If you’re allowing that mentation to be driven by the radio or the television or other people’s conversations, you are just cutting down on your exploratory, your intellectual exploratory time. 
+		- ^ Ties back to the importance of what you choose to consume.
+- Keeping the mind open and flexible to notice when new ideas, new problems, and new insights arise out of the interaction with the medium. One must pay attention to one’s goals and feelings to know whether the work is indeed proceeding as intended. 
+	- keeping the mind open and flexible, paying attention, staying open.
+- I had been kind of tired, working Saturdays and Sundays, and I had gone to Italy for a week, just to get away. I went first to Rome for a couple days, then I went up to Florence. I’d get up early in the morning, and I’d wander around, and I sat on a park bench, sort of between seven in the morning and noon, then in the afternoon I’d go visit museums and whatever. And I had a notebook, an Italian notebook, and I wrote myself long essays on what was going on and what I was worried about. And it helped me get my mind organized. Then in the afternoons I wouldn’t do anything. 
+- People report feeling their most creative when involved in a semiautomatic activity that takes up a certain amount of attention, while leaving some of it free to make connections among ideas below the threshold of conscious intentionality. Devoting full attention to a problem is not the best recipe for having creative thoughts. 
+- Our minds make unlikely connections between ideas, memories, and experiences when we’re at rest and not focused on a specific task. 
+- All truly great thoughts are conceived by walking. 
+- Engage relaxed attention: Flashes of insight often come when your mind is relaxed and not focused on completing a specific task , allowing the mind to make new connections between seemingly unrelated ideas.
+- At the end of the workday, shut down your consideration of work issues until the next morning—no after-dinner e-mail check, no mental replays of conversations, and no scheming about how you’ll handle an upcoming challenge; shut down work thinking completely. If you need more time, then extend your workday, but once you shut down, your mind must be left free to encounter Kreider’s buttercups, stink bugs, and stars.
+	- This strategy argues that you should follow Kreider’s lead by injecting regular and substantial freedom from professional concerns into your day, providing you with the idleness paradoxically required to get (deep) work done.
+	- In other words, to actively try to work through these decisions will lead to a worse outcome than loading up the relevant information and then moving on to something else while letting the subconscious layers of your mind mull things over.
+	- Any work you do fit into the night, therefore, won’t be the type of high-value activities that really advance your career; your efforts will instead likely be confined to low-value shallow tasks (executed at a slow, low-energy pace). By deferring evening work, in other words, you’re not missing out on much of importance.
+	- To succeed with this strategy, you must first accept the commitment that once your workday shuts down, you cannot allow even the smallest incursion of professional concerns into your field of attention. This includes, crucially, checking e-mail, as well as browsing work-related websites.
+	- In more detail, this ritual should ensure that every incomplete task, goal, or project has been reviewed and that for each you have confirmed that either (1) you have a plan you trust for its completion, or (2) it’s captured in a place where it will be revisited when the time is right.
+		- PN: Maybe a section on “I have a day job, how can I be creative?”
+- Having a casual conversation with a friend, listening to music while making dinner, playing a game with your kids, going for a run—the types of activities that will fill your time in the evening if you enforce a work shutdown—play the same attention-restoring role as walking in nature.
+- Only the confidence that you’re done with work until the next day can convince your brain to downshift to the level where it can begin to recharge for the next day to follow.
+- regularly resting your brain improves the quality of your deep work. When you work, work hard. When you’re done, be done.
+- It is important to schedule times in the day, the week, and the year just to take stock of your life and review what you have accomplished and what remains to be done.
+- whether you intend it or not, new ideas and conclusions will emerge in your subconscious anyway — and the less you try to direct the process, the more creative they are likely to be. 
+- typical activities that facilitate subconscious creative processes are walking, driving, showering, swimming, carpentry, gardening, etc. 
+- you should alternate stress with periods of relaxation. Relaxation can just mean doing something totally different from your usual tasks, like art, rock climbing, etc. 
+
+## Put it out there.
+- Share your stuff and show your work to people around you.
+- Making things, sharing those things with an open heart and no expectations.
+- Also, needy or not, you might want to watch and see when your I.R. puts your manuscript down to do something else. What scene was he or she reading? What was so easy to put down?
+- You need to listen very carefully to the things I.R. didn’t understand, and then ask yourself if you understand them. If you do and just didn’t put those parts across, your job on the second draft is to clarify. If you don’t—if the parts of the back story your Ideal Reader queried are hazy to you, as well—then you need to think a lot more carefully about the past events that cast a light on your characters’ present behavior.
+- In the very same essay, he mentions the importance of having a close friend to have real and substantive conversations with.
+- The book you are reading—as I would guess is the case with most books—is the result of many conversations I’ve had over the course of many years, in my case with both humans and nonhumans. Many of them happened while I was writing this, and all of them changed my mind. Now, as you read it, this book forms a conversation with you as well.
+- Meanwhile, countless examples from history and ecological science teach us that a diverse community with a complex web of interdependencies is not only richer but more resistant to takeover. When I read Schulman’s The Gentrification of the Mind, I picture the difference between a permaculture farm and a commercial corn farm that could be devastated by a single parasite.
+	- Personal Note: DIVERSITY OF SOURCES, VOICES, IDEAS THAT YOU CAN BUILD ON AND MERGE WITH OTHER IDEAS INTO SOMETHING NEW
+- I don’t bring my phone or any device during the run. I develop ideas locally, and reserve them (stage them, as in github terminology) and share them once I’m ready for more encounters.
+- When I try to imagine a sane social network it is a space of appearance: a hybrid of mediated and in-person encounters, of hours-long walks with a friend, of phone conversations, of closed group chats, of town halls.
+
+## Get started again. 
+
+
+## Scratchpad.
+- Really all boils down to inspiration, stimulation, learning, curiosity. 
+- Understand the problem, do the research, play hard looking for potential options, sleep on it, and let your subconscious do the rest.
+- It’s a virtuous cycle. The more you practice, learn, and make discoveries, the more confident you’ll be. 
+- Richer, more textured. More varied. 
+- State of uninterrupted marvel 
+- I knew, not because Owen stopped practicing, but because he was practicing only during the periods Mr. Bowie had set for him: half an hour after school four days a week, plus an hour on the weekends. Owen mastered the scales and the notes—nothing wrong with his memory, his lungs, or his eye-hand coordination—but we never heard him taking off, surprising himself with something new, blissing himself out. And as soon as his practice time was over, it was back into the case with the horn, and there it stayed until the next lesson or practice-time.
+- What this suggested to me was that when it came to the sax and my son, there was never going to be any real play-time; it was all going to be rehearsal. That’s no good. If there’s no joy in it, it’s just no good. It’s best to go on to some other area, where the deposits of talent may be richer and the fun quotient higher. Talent renders the whole idea of rehearsal meaningless; when you find something at which you are talented, you do it (whatever it is) until your fingers bleed or your eyes are ready to fall out of your head. Even when no one is listening (or reading, or watching), every outing is a bravura performance, because you as the creator are happy. Perhaps even ecstatic. That goes for reading and writing as well as for playing a musical instrument, hitting a baseball, or running the four-forty.
+- I knew Winifred back in the 1990s, in Greenwich Village. I first met her at her ninetieth birthday party, which was quite a wild bash. She was a friend of a friend of mine (a guy who was in his twenties; Winifred had friends of all ages and backgrounds). Winifred was a bit of a luminary around Washington Square back in the day. She and her late husband (a scientist) had spent their vacations chasing typhoons and hurricanes all over the world, just for fun. She kind of was a hurricane herself. Winifred was the most vividly alive woman I had ever met in my young life, so one day, looking for inspiration, I asked her, “What’s the best book you’ve ever read?” She said, “Oh darling. I could never narrow it down to just one book, because so many books are important to me. But I can tell you my favorite subject. Ten years ago, I began studying the history of ancient Mesopotamia, and it became my passion, and let me tell you — it has totally changed my life."
+- If you devote yourself to anything diligently for ten years, you’ll be an expert. 
+- If you want to live a contented creative life, you do not want to cultivate either one of those traits (laziness and perfectionism).
+- Be satisfied with the smallest progress, and treat the outcome of it all as unimportant. 
+- Through the mere act of creating something, anything — you might inadvertently produce work that is magnificent, eternal, or important. 
+- If I am not actively creating something, then I am probably actively destroying something (myself, a relationship, or my own piece of mind). 
+- We all need something that helps us to forget ourselves for awhile. 
+- Nobody was ever thinking of you, anyhow. Go be whoever you want to be then. Do whatever you want to do. Pursue whatever fascinates you and brings you to life.
+- Do what you love to do, and do it with both seriousness and lightness.
+- What is sacred is the time that you spend working on the project, and what that time does to expand your imagination, and what that expanded imagination does to transform your life. 
+- A master in the art of living draws no sharp distinction between his work and his play; his labor and his leisure; his mind and his body; his education and his recreation. He hardly knows which is which. He simply pursues his vision of excellence through whatever he is doing, and leaves others to determine whether he is working or playing. To himself, he always appears to be doing both.
+- Working satisfied the urge to do something both useful and pleasurable, to make beautiful functional climbing tools that employees needed to pursue their own climbing.
+- To stand apart is to look at the world (now) from the point of view of the world as it could be (the future), with all of the hope and sorrowful contemplation that this entails. For someone who cannot otherwise live with the terms of her society, the third space can provide an important if unexpected harbor.
+- Difference is strength, a prerequisite for creativity that allows individual growth and communal political innovation. Lorde’s words are especially resonant now, when our politics play out on platforms ill designed for difference, plurality, and encounter.
+- You need competition and feedback in order to push yourself beyond your limits. You need a group of people who actively critique your work, and peers who are also trying to extend their capabilities. 
+- Schools generally fail to teach how exciting, how mesmerizingly beautiful science or mathematics can be; they teach the routine of literature or history rather than the adventure.
+- You must have an obsession. You must always have too little time instead of too much. 
+- You need to recognize patterns, identify themes, and find meaning in all that you’ve seen, gathered, and observed. Translate what you’ve uncovered in research into actionable frameworks and principles. Reframe the problem and choose where to focus your energy. 
+- Once your brain has become accustomed to on-demand distraction, Nass discovered, it’s hard to shake the addiction even when you want to concentrate. To put this more concretely: If every moment of potential boredom in your life—say, having to wait five minutes in line or sit alone in a restaurant until a friend arrives—is relieved with a quick glance at your smartphone, then your brain has likely been rewired to a point where, like the “mental wrecks” in Nass’s research, it’s not ready for deep work—even if you regularly schedule time to practice this concentration.
+- Symbolic systems
+	- special domains have their own special rules. They and thousands of other such systems make up culture, and we become human by seeing the world through the lenses they provide. A person who learns to operate by the rules of one of these domains has a chance to expand enormously the rang of his or her creativity.
+- Complex domains like poetry, physics, history, or politics reveal constantly expanding perspectives to those who venture to explore them. 
+	- generally it is more satisfying to become involved in activities that are inexhaustible — music, poetry, carpentry, computers, gardening, philosophy, or deep personal relationships.
+- be present. It’s the journey, not the destination. 
+	- they’re more ready to learn from the emerging work, they’re alert to the unexpected and are willing to go with a better solution if one presents itself (they don’t start with the end in mind, the work reveals itself to them over time). 
+	- such flexibility only works if you keep paying close attention to the process of solutions ad if you are sensitive enough to the feedback so you can correct the course as new information becomes available. 
+	- what really matters is not whether your name has been attached to a recognized discover, but whether you have lived a full and creative life. 
+- everyday creativity.
+	- how do you express yourself? Your appearance, your environment?
+	- how do you communicate with others? You can use trite, cliche phrases or try to say things in a fresh, topical way that more closely represents what you feel at the moment. You can use vivid images instead of stock ones.
+	- let yourself be generative. Planning a weekend or a vacation? Come up with as many options as you can think of, even if they’re not all very sensible.  Allow yourself to explore a range of ideas and possibilities rather than going directly to defaults. Variety in conversation, in music, in a menu, different types of conversations. 
+	- If your job requires frequent meetings + conferences, you might cultivate the habit of jotting dow brief summaries of what others around the table have said. Then you ca quickly generate alternative positions to those that have been expressed, or integrate the various perspectives in a more comprehensive perspective. Suggest new ways of thinking about the issues.
+		- ^^^^^ YES. Do this. You kind of already do, but do so more deliberately at work, and also with the content you engage with and consume that’s related to your work.
+
+## Don’t be concerned with what others think. (Remove ego).
+- Never took naysayers seriously. 
+- Fortunate to have a calling that makes it possible for them to dwell as little as possible on what might have been and go on with their lives. 
+
+
+## Give yourself a deadline.
+- PN: I have honestly never done this before when it comes to my creative work. I hate deadlines. But I keep hearing it’s a useful forcing function for producing work, and here I am having produced nothing, so why not try it? I’ve also experienced the effects of having a very clear deadline and audience for a thing. When I’ve needed to prep a talk I’m giving for work, my thinking becomes clearer, I’m more engaged, and more likely to think of that thing that is going to refine my thinking even more. Jenny Odell says that if it wasn’t for the fact that she needed to prep a talk for EYEO, How to Do Nothing would have never happened. Deadlines might secretly rule. Also, prompts! Give yourself prompts and things to think and write about. 
+	- Monthly competition amongst students. Every month, a new set of problems was published in the intramural math journal, and the students discussed and debated them at length in their free time.
+- What creative project could you tackle by focusing on it for half an hour each day before work?
+- Roosevelt dashes leverage artificial deadlines to help you systematically increase the level you can regularly achieve—providing, in some sense, interval training for the attention centers of your brain.
+
+## Collective creativity // creative communities.
+- Centers of creativity tend to be at the intersection of different cultures, where beliefs, lifestyles, and knowledge mingle and allow individuals to see new combinations of ideas with greater ease. 
+- The importance of seeing people, hearing people, exchanging ideas, and getting to know another person’s work and mind. 
+- Keep in touch with domain knowledge to use the most effective techniques, fullest information, and best theories as one proceeds. Listen and interact with those involved with similar problems. 
+- The place where one lives is important for three main reasons: it must be in a position to access the domain in which one plans to work. Information is not evenly distributed in space, but is clumped in different geographical nodes.
+	- PN: It will be interesting to watch how this evolves with remote work. You’ll no longer need to be geographically situated in a specific location to access the ideas of that place. 
+	- Certain environments have a greater density of interaction and provide more excitement and a greater effervescence of ideas. 
+	- The young artists who were drawn to Paris from all over the world at the end of the last century lived in a heady atmosphere where new ideas, new expressions, and new ways of living constantly jostled one another and called forth further novelty. 
+- Distinction between the microenvironment, the social, cultural, and institutional context in which a person lives, and the microenvironment, the immediate setting which a person works. A certain amount of surplus wealth never hurts. Florence in the Renaissance, Venice in the fifteenth century; Paris, London, and Vienna in the nineteenth, were affluent and cosmopolitan, and tended to be at the crossroads of cultures, where information from different traditions was exchanged and synthesized. 
+	- PN: This sounds pretentious, but I wonder if you can map the terroir of ideas. As laid out here, the social, cultural, and institutional context in which a person lives has an immediate impact on their work (which is my favorite part of a good art museum, how they lay out the context and history that shaped the work you’re viewing). And as Jenny Odell lays out, the natural setting matters as well (bioregionalism). Do different types of ideas unfold in different settings? Different natural (or man-made) environments? 
+		- PN: I’m personally very interested in creative groups, movements where the people who ended up shaping the dialogue were all working in the same area, talking with one another, riffing off one another, etc. Also, how does the internet change that (or not)? There’s technically no longer a need to live in Paris to engage with other artists, intellectuals (rewind back to the 19th century). You could engage with people over the Internet. But has the Internet fulfilled that promise? It’s more of a distraction than a boon. I think there is still something deeply meaningful about seeing a person and engaging with that person in real life, in real time, as opposed to flitting back and forth between screens. Another semi-related thought. I feel like much has been written about creativity in cities, but what about creativity in rural areas? What about the connection between the two and the movement of creative people from city to country and back again? 
+			- I may want to read the work of Richard Florida again (haven’t looked at that since college when I was obsessed with creativity in cities). Also, Oli Mould, who only recently came to my attention with his latest book on Against Creativity. His focus area is fascinating and so up my alley — writes regularly about cities, creativity, and activism —it’s someone’s job to think about these things?!?
+- Make sure that where you work and live reflects your needs and your tastes. There should be room for immersion in concentrated activity and for stimulating novelty. The objects around you should help you become what you intend to be. Think about how you use time and consider whether your schedule reflects the rhythms that work best for you. 
+	- ^^ Included earlier in honing your process.
+- Contacts like these are necessary to the creative person for several reasons: They provide benchmarks for evaluating one’s own work, they offer competition that spurs one to surpass oneself, they provide helpful criticism, and last but not least, they open up opportunities and information that can be essential to one’s advancement.
+- Seven major elements in the social milieu that help make creative contributions possible: training, expectations, resources, recognition, hope, opportunity and reward. Creativity can be substantially increased by making sure that society provides these opportunities more widely. 
+- Parents and mentors conveyed their faith in the young creator’s abilities indirectly, almost taking excellence for granted, rather than nagging, pushing, or insisting. 
+- When everything is comfortable and better than anywhere else, the desire for novelty turns to thrills and entertainment instead of trying to solve basic problems. 
+- If the systems model of creativity is accurate, then it follows that creativity can be enhanced just as much by changing the field - by making it more sensitive and supportive of new ideas - as by producing a greater number of creative individuals.
+	- Read Donella Meadows’ piece on leverage points within a system.
+- Better training, higher expectations, more accurate recognition, a greater availability of opportunities, and stronger rewards are among the contains that facilitate the production and the assimilation of potentially useful new ideas.
+- Whenever a better way of representing reality is found, it opens up new paths of exploration and discovery.
 
 ## Where ideas come from.
 - Usually insights tend to come to prepared minds, that is, to those who have thought long and hard about a given set of problematic issues. There are 3 main sources from which problems typically arise:
@@ -553,6 +592,48 @@
 	- ^ PN: Look at A Technique for Producing Ideas by James Webb Young
 - Breakthroughs are the result of reformulating old problems or discovering new ones rather than just solving existing problems.
 
+## Refine.
+- For me the answer has always been two drafts and a polish 
+- Sit down with your door shut (you’ll be opening it to the world soon enough), a pencil in your hand, and a legal pad by your side. Then read your manuscript over.
+- Do it all in one sitting, if that’s possible (it won’t be, of course, if your book is a four- or five-hundred-pager).
+- Make all the notes you want, but concentrate on the mundane housekeeping jobs, like fixing misspellings and picking up inconsistencies.
+- With six weeks’ worth of recuperation time, you’ll also be able to see any glaring holes in the plot or character development. I’m talking about holes big enough to drive a truck through. It’s amazing how some of these things can elude the writer while he or she is occupied with the daily work of composition. And listen—if you spot a few of these big holes, you are forbidden to feel depressed about them or to beat up on yourself.
+
+## Capture ideas.
+- Keep one or multiple types of writing instruments to capture ideas and impulses. Ideas can be fleeting. I have a little notebook, but I also jot things down in my Things apps and file them away in the Someday tab. Organization isn’t super important, the main thing is to get the ideas down.
+- All of them keep notebooks handy for when the voice of the muse calls, which tends to be early in the morning while the writer is still in bed, half asleep. Most of them have been keeping a diary for many years. They usually start a working day with a word, a phrase, or an image, rather than a concept or planned composition 
+- Try to surprise at least one person every day.
+	- More of a tool, obviously not a way to capture ideas. But a tool that you can leverage to engage more richly and deeply in life.
+- Write down each day what surprised you and how you surprised others. Most creative people keep a diary, or notes, or lab records to make their experiences more concrete and enduring. Record each evening the most surprising event that happened that day and your most surprising action. After a few days, you can reread what you have written and reflect on those experiences.
+
+## Work on several projects at once using mixed methods.
+- This is again a common pattern among creative individuals, it keeps them from getting bored or stymied, and it produces unexpected cross-fertilization of ideas.
+- There are at least four different approaches that Wilson commonly uses. The first is fieldwork, in exotic places which acts as a sort of “nuclear fuel” by providing concrete data and experiences to be elaborated later. The second is attending lectures and meetings where he absorbs from other experts the latest developments in domains that interest him. The third is night-work , the serendipitous connection between ideas that unexpectedly arise upon waking up int he middle of the night. And finally, there is the systematic work that takes place. From morning to early afternoon, which also includes reading, writing, mathematical modeling, and drawing specimens. 
+
+## Metaphors.
+- The idea of the lone hunter, or the lone voyager or explorer, who’s guided by his or her principles and is going to get there against all odds, that self-image, is a very powerful force in making a major scientist.
+- Spaceship Earth (Buckminster Fuller)
+- They all see themselves as primarily synthesizers. They compare what they do to the work of a detective or an explorer. 
+- On one level I feel like an extraterrestrial. I’m visiting here for a while. And I’m also in human form. I’m very emotionally attached to the species. And so I have incarnated myself at this time. Abut I have also an infinite aspect to myself. It. All kind of hangs together quite easily for me. It sounds flippant, but the thing is that this is a spirituous practice for me. 
+- I’m thinking all the time about the different metaphors we use and how they determine our understanding of how reality works.
+
+## Be an interested person.
+- The essential ingredients for creativity remain exactly the same for everyone: courage, enchantment, permission, persistence, and trust. 
+- Detached attachment, which Elizabeth Gilbert talks about as well. 
+	-…to be detached from everything that bound me, noticing everything that was different. (On going abroad) 
+- What is important is to recognize the interest when it shows itself, nurture it, and provide the opportunities for it to grow into a creative life. 
+- Caring is a good feeling, and we’ve lost our appetite for it.
+- This tendency to take one’s dreams and hunches seriously and to see patterns where others see meaningless confusion is clearly one of the most important traits that separates creative individuals from otherwise equally competent peers. They all see themselves as primarily synthesizers. They compare what they do to the work of a detective or an explorer. 
+- What mattered was to do the best she could and enjoy it while it lasted, without getting all ego-minded with success.
+- To get the things done that I had to get done, I had to be more open and more interested.
+- Constant shifting from action to reflection, from passion to objectivity. 
+- It is exhilarating to build culture - to be an artist, a scientist, a thinker, or a doer. All too often the joy of discovery fails to be communicated to young people, who instead turn to passive entertainment. But consuming culture is never as rewarding as producing it. 
+- Do things in an extraordinary way. 
+- Life is nothing more than a stream of experiences — the more widely and deeply you swim in it, the richer your life will be.
+- The overall quality of an experience tends to improve in proportion to the effort and attention invested in it.
+	- being present, being where you are. If you’re at work, be at work. If you’re with your family, BE with your family. Be attuned to and live with the moment. 
+	- The more activities we can do with excellence and style, the more of life becomes intrinsically rewarding 
+- by experiencing the world from a different perspective, you will enrich your life considerably. 
 
 ## Curation as a creative act.
 - It’s not always about it being super original. You can build on the work and ideas of others if you have something new and fresh to contribute to it
@@ -584,79 +665,4 @@
 		- From Creativity: A milieu that encourages both solitude and gregariousness. 
 			\* 
 	- What seems to happen is that when persons with prepared minds find themselves in beautiful settings, they are more likely to find new connections among ideas, new perspectives on issues they are dealing with. 
-
-## Collective creativity // creative communities.
-- Centers of creativity tend to be at the intersection of different cultures, where beliefs, lifestyles, and knowledge mingle and allow individuals to see new combinations of ideas with greater ease. 
-- The importance of seeing people, hearing people, exchanging ideas, and getting to know another person’s work and mind. 
-- Keep in touch with domain knowledge to use the most effective techniques, fullest information, and best theories as one proceeds. Listen and interact with those involved with similar problems. 
-- The place where one lives is important for three main reasons: it must be in a position to access the domain in which one plans to work. Information is not evenly distributed in space, but is clumped in different geographical nodes.
-	- PN: It will be interesting to watch how this evolves with remote work. You’ll no longer need to be geographically situated in a specific location to access the ideas of that place. 
-	- Certain environments have a greater density of interaction and provide more excitement and a greater effervescence of ideas. 
-	- The young artists who were drawn to Paris from all over the world at the end of the last century lived in a heady atmosphere where new ideas, new expressions, and new ways of living constantly jostled one another and called forth further novelty. 
-- Distinction between the microenvironment, the social, cultural, and institutional context in which a person lives, and the microenvironment, the immediate setting which a person works. A certain amount of surplus wealth never hurts. Florence in the Renaissance, Venice in the fifteenth century; Paris, London, and Vienna in the nineteenth, were affluent and cosmopolitan, and tended to be at the crossroads of cultures, where information from different traditions was exchanged and synthesized. 
-	- PN: This sounds pretentious, but I wonder if you can map the terroir of ideas. As laid out here, the social, cultural, and institutional context in which a person lives has an immediate impact on their work (which is my favorite part of a good art museum, how they lay out the context and history that shaped the work you’re viewing). And as Jenny Odell lays out, the natural setting matters as well (bioregionalism). Do different types of ideas unfold in different settings? Different natural (or man-made) environments? 
-		- PN: I’m personally very interested in creative groups, movements where the people who ended up shaping the dialogue were all working in the same area, talking with one another, riffing off one another, etc. Also, how does the internet change that (or not)? There’s technically no longer a need to live in Paris to engage with other artists, intellectuals (rewind back to the 19th century). You could engage with people over the Internet. But has the Internet fulfilled that promise? It’s more of a distraction than a boon. I think there is still something deeply meaningful about seeing a person and engaging with that person in real life, in real time, as opposed to flitting back and forth between screens. Another semi-related thought. I feel like much has been written about creativity in cities, but what about creativity in rural areas? What about the connection between the two and the movement of creative people from city to country and back again? 
-			- I may want to read the work of Richard Florida again (haven’t looked at that since college when I was obsessed with creativity in cities). Also, Oli Mould, who only recently came to my attention with his latest book on Against Creativity. His focus area is fascinating and so up my alley — writes regularly about cities, creativity, and activism —it’s someone’s job to think about these things?!?
-- Make sure that where you work and live reflects your needs and your tastes. There should be room for immersion in concentrated activity and for stimulating novelty. The objects around you should help you become what you intend to be. Think about how you use time and consider whether your schedule reflects the rhythms that work best for you. 
-	- ^^ Included earlier in honing your process.
-- Contacts like these are necessary to the creative person for several reasons: They provide benchmarks for evaluating one’s own work, they offer competition that spurs one to surpass oneself, they provide helpful criticism, and last but not least, they open up opportunities and information that can be essential to one’s advancement.
-- Seven major elements in the social milieu that help make creative contributions possible: training, expectations, resources, recognition, hope, opportunity and reward. Creativity can be substantially increased by making sure that society provides these opportunities more widely. 
-- Parents and mentors conveyed their faith in the young creator’s abilities indirectly, almost taking excellence for granted, rather than nagging, pushing, or insisting. 
-- When everything is comfortable and better than anywhere else, the desire for novelty turns to thrills and entertainment instead of trying to solve basic problems. 
-- If the systems model of creativity is accurate, then it follows that creativity can be enhanced just as much by changing the field - by making it more sensitive and supportive of new ideas - as by producing a greater number of creative individuals.
-	- Read Donella Meadows’ piece on leverage points within a system.
-- Better training, higher expectations, more accurate recognition, a greater availability of opportunities, and stronger rewards are among the contains that facilitate the production and the assimilation of potentially useful new ideas.
-- Whenever a better way of representing reality is found, it opens up new paths of exploration and discovery.
-
-
-## Ignore everything.
-
-## Scratchpad.
-- Really all boils down to inspiration, stimulation, learning, curiosity. 
-- Understand the problem, do the research, play hard looking for potential options, sleep on it, and let your subconscious do the rest.
-- It’s a virtuous cycle. The more you practice, learn, and make discoveries, the more confident you’ll be. 
-- Richer, more textured. More varied. 
-- State of uninterrupted marvel 
-- I knew, not because Owen stopped practicing, but because he was practicing only during the periods Mr. Bowie had set for him: half an hour after school four days a week, plus an hour on the weekends. Owen mastered the scales and the notes—nothing wrong with his memory, his lungs, or his eye-hand coordination—but we never heard him taking off, surprising himself with something new, blissing himself out. And as soon as his practice time was over, it was back into the case with the horn, and there it stayed until the next lesson or practice-time.
-- What this suggested to me was that when it came to the sax and my son, there was never going to be any real play-time; it was all going to be rehearsal. That’s no good. If there’s no joy in it, it’s just no good. It’s best to go on to some other area, where the deposits of talent may be richer and the fun quotient higher. Talent renders the whole idea of rehearsal meaningless; when you find something at which you are talented, you do it (whatever it is) until your fingers bleed or your eyes are ready to fall out of your head. Even when no one is listening (or reading, or watching), every outing is a bravura performance, because you as the creator are happy. Perhaps even ecstatic. That goes for reading and writing as well as for playing a musical instrument, hitting a baseball, or running the four-forty.
-- I knew Winifred back in the 1990s, in Greenwich Village. I first met her at her ninetieth birthday party, which was quite a wild bash. She was a friend of a friend of mine (a guy who was in his twenties; Winifred had friends of all ages and backgrounds). Winifred was a bit of a luminary around Washington Square back in the day. She and her late husband (a scientist) had spent their vacations chasing typhoons and hurricanes all over the world, just for fun. She kind of was a hurricane herself. Winifred was the most vividly alive woman I had ever met in my young life, so one day, looking for inspiration, I asked her, “What’s the best book you’ve ever read?” She said, “Oh darling. I could never narrow it down to just one book, because so many books are important to me. But I can tell you my favorite subject. Ten years ago, I began studying the history of ancient Mesopotamia, and it became my passion, and let me tell you — it has totally changed my life."
-- If you devote yourself to anything diligently for ten years, you’ll be an expert. 
-- If you want to live a contented creative life, you do not want to cultivate either one of those traits (laziness and perfectionism).
-- Be satisfied with the smallest progress, and treat the outcome of it all as unimportant. 
-- Through the mere act of creating something, anything — you might inadvertently produce work that is magnificent, eternal, or important. 
-- If I am not actively creating something, then I am probably actively destroying something (myself, a relationship, or my own piece of mind). 
-- We all need something that helps us to forget ourselves for awhile. 
-- Nobody was ever thinking of you, anyhow. Go be whoever you want to be then. Do whatever you want to do. Pursue whatever fascinates you and brings you to life.
-- Do what you love to do, and do it with both seriousness and lightness.
-- What is sacred is the time that you spend working on the project, and what that time does to expand your imagination, and what that expanded imagination does to transform your life. 
-- A master in the art of living draws no sharp distinction between his work and his play; his labor and his leisure; his mind and his body; his education and his recreation. He hardly knows which is which. He simply pursues his vision of excellence through whatever he is doing, and leaves others to determine whether he is working or playing. To himself, he always appears to be doing both.
-- Working satisfied the urge to do something both useful and pleasurable, to make beautiful functional climbing tools that employees needed to pursue their own climbing.
-- To stand apart is to look at the world (now) from the point of view of the world as it could be (the future), with all of the hope and sorrowful contemplation that this entails. For someone who cannot otherwise live with the terms of her society, the third space can provide an important if unexpected harbor.
-- Difference is strength, a prerequisite for creativity that allows individual growth and communal political innovation. Lorde’s words are especially resonant now, when our politics play out on platforms ill designed for difference, plurality, and encounter.
-- You need competition and feedback in order to push yourself beyond your limits. You need a group of people who actively critique your work, and peers who are also trying to extend their capabilities. 
-- Schools generally fail to teach how exciting, how mesmerizingly beautiful science or mathematics can be; they teach the routine of literature or history rather than the adventure.
-- You must have an obsession. You must always have too little time instead of too much. 
-- You need to recognize patterns, identify themes, and find meaning in all that you’ve seen, gathered, and observed. Translate what you’ve uncovered in research into actionable frameworks and principles. Reframe the problem and choose where to focus your energy. 
-- Once your brain has become accustomed to on-demand distraction, Nass discovered, it’s hard to shake the addiction even when you want to concentrate. To put this more concretely: If every moment of potential boredom in your life—say, having to wait five minutes in line or sit alone in a restaurant until a friend arrives—is relieved with a quick glance at your smartphone, then your brain has likely been rewired to a point where, like the “mental wrecks” in Nass’s research, it’s not ready for deep work—even if you regularly schedule time to practice this concentration.
-- Symbolic systems
-	- special domains have their own special rules. They and thousands of other such systems make up culture, and we become human by seeing the world through the lenses they provide. A person who learns to operate by the rules of one of these domains has a chance to expand enormously the rang of his or her creativity. 
-- Complex domains like poetry, physics, history, or politics reveal constantly expanding perspectives to those who venture to explore them. 
-	- generally it is more satisfying to become involved in activities that are inexhaustible — music, poetry, carpentry, computers, gardening, philosophy, or deep personal relationships. 
-- be present. It’s the journey, not the destination. 
-	- they’re more ready to learn from the emerging work, they’re alert to the unexpected and are willing to go with a better solution if one presents itself (they don’t start with the end in mind, the work reveals itself to them over time). 
-	- such flexibility only works if you keep paying close attention to the process of solutions ad if you are sensitive enough to the feedback so you can correct the course as new information becomes available. 
-	- what really matters is not whether your name has been attached to a recognized discover, but whether you have lived a full and creative life. 
-- everyday creativity.
-	- how do you express yourself? Your appearance, your environment?
-	- how do you communicate with others? You can use trite, cliche phrases or try to say things in a fresh, topical way that more closely represents what you feel at the moment. You can use vivid images instead of stock ones.
-	- let yourself be generative. Planning a weekend or a vacation? Come up with as many options as you can think of, even if they’re not all very sensible.  Allow yourself to explore a range of ideas and possibilities rather than going directly to defaults. Variety in conversation, in music, in a menu, different types of conversations. 
-	- If your job requires frequent meetings + conferences, you might cultivate the habit of jotting dow brief summaries of what others around the table have said. Then you ca quickly generate alternative positions to those that have been expressed, or integrate the various perspectives in a more comprehensive perspective. Suggest new ways of thinking about the issues.
-		- ^^^^^ YES. Do this. You kind of already do, but do so more deliberately at work, and also with the content you engage with and consume that’s related to your work. 
-
-
-
-
-
-
-
 
