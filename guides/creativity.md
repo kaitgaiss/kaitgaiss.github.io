@@ -1,6 +1,100 @@
 # On creative work
 
-- simple tools, simple truths 
+I read _a lot_. Always have and always will. And a year or two ago, I looked back on what I’ve read, and saw threads running through book after book. Ideas I’ve been fascinated with, themes and questions I’ve been asking for what may be my entire life. 
+
+One of these threads was creativity. This is an act of love and inspired by authors, and countless others publishing online. 
+
+This is a guide to waking up. It’s a guide to simple truths and simple acts that will expand your entire being if you let them. Will you? 
+
+## Get your mind right. 
+
+Take a moment to be here, now. Witness your surroundings. What do you hear? See? Smell? Feel your tailbone where it meets your seat. 
+
+A creative mind — _your creative mind_ — is one of contradictions. It’s curious and open. Focused and driven. Embrace that dissonance. The tension it creates results in a buzz, an energy with which you move about the world. 
+
+****Duality. Selflessness and ambition. Playfulness and discipline, responsibility and irresponsibility. A playfully light attitude. “The most important thing in a young physicist is this bounce, which I always associate with fun in science, kicking things around. It’s not quite joking, but it has some of the lightness of joking. It’s exploring ideas.”
+
+PN: Can’t take yourself too seriously. But your work needs to be serious. 
+
+It all begins with joy and wonder. To be an interesting person, you must first be an _interested person_. We are all born with this quality. When we’re young, we ask questions, some of them specific and some of them as simple yet as expansive as a repeated “Why?” We turn over rocks in streams to see what lies underneath. We paint dreamscapes with our fingertips. We write stories that help us make sense of what we see in our everyday, but that make space for something bigger, bolder, magical. As children, we know intuitively that the world is full of miracles just waiting to be discovered. 
+
+Yet somewhere along the way our wonder begins to wane. Maybe it’s school. Maybe it’s expectations. Maybe it’s the need to be practical. As adults we all become so stuffy. Put your head down. _Why?_ That’s just the way the world works. _Well, why?_  
+
+**** So often we shield ourselves from the most miraculous things our lives have to offer. We numb ourselves from experiencing our lives just so we can “get through” another day. 
+
+> If you will not permit yourself to be driven and flogged through life, you’ll probably enjoy it more. — Mihaly Csikszentmihalyi, “Creativity” 
+
+Excavate it. Uncover it. Beliefs and ways of seeing the world have a way of hardening over time. I’ve spent months excavating. Chipping away at my beliefs and the lenses I use and turning them over and over again. Oftentimes, I realize that Fear is at the center of them. 
+
+Speak to privilege. 
+
+PN: A lot of this is simply about enjoyment. Enjoying your life, enjoying your work. Not taking it so seriously, but also being very disciplined and committed to your craft at the same time. 
+
+ Enjoy your work. Stay as light and unburdened as possible. Taking yourself too seriously starts to close you up. The results of your work don’t have much to do with you. You can only be in charge of producing the work yourself. 
+
+Work has to be enjoyable on a daily basis. It’s simply. The simple truth is this: Doing things that you enjoy makes life more enjoyable. Which in turn, expands your life. 
+
+PN: Your reason for doing all this cannot be to be well known or be recognized. That’s going to suck all the joy out of it, and from your day. It sounds dumb, but your driving motivation has to be purer than that — to engage with the work, to figure out your thinking on something. If that’s the driving thing, then it doesn’t matter what people think of it, or who sees it. It lifts the pressure.
+- PN: Fear happens when you attach outsize meaning to something. Can you accept that you’re not going to win a Pulitzer right out of the gate? Good. You’re not doing this for any reason but because you _enjoy it._ That’s where the magic happens. You trip when you start wondering about the destination, but the journey is where it’s at. 
+
+
+Without a good dose of curiosity, wonder, and interest in what things are like and in how they work, it is difficult to recognize an interesting problem. Openness to experience, a fluid attention that constantly processes events in the environment, is a great advantage for recognizing potential novelty.
+
+
+## Managing your fear. 
+
+All of these people describe creativity as something that is channeled through them but not of them. Does that make sense? 
+
+Create metaphors for yourself. I’m not a die-hard Star Wars fan, but a creative practice feels so much like Jedi training to me that sometimes that’s how I view it. “I’m training to be a fucking Jedi.” Is what I’ll tell myself as I meditate and do yoga. 
+
+### Managing the fear. 
+- PN: The fear will always exist. You just need to learn to manage it. To treat it as a visitor who you can invite inside or not. To be aware that it is not YOU. It is something else entirely. 
+- Don’t let your fear control you. Don’t stop yourself. 
+- Don’t be afraid to make mistakes, or waste your time. Do a ton of worthless testing. Do things just for the sake of learning them, even if they don’t ultimately take you anywhere. The most important thing is to stay engaged and excited by the creative process. (is this actually the most important thing?). Don’t be overly hard on yourself in the early stages of a project.
+- The majority of people in every culture invest their lives in projects that are defined by their society. They pay attention to what others pay attention to, they experience what others experience. They go to school and learn what should be learned, they work at whatever job is available, they marry and have children according to the local customs. It is difficult to see how it could be otherwise. Would it be possible to have a stable, predictable life if most people were not conformists? At the same time, a culture can only evolve if a few souls do not play by the usual rules. The men and women we studied made up their own rules as they went along, combining luck with the singleness of their purpose, until they were ablate fashion a “life theme” that expressed their unique vision while also allowing them to make a living.
+- I decided that I would need to build an expansive enough interior life that my fear and my creativity could peacefully coexist. I make all that space for fear. It seems to me that the less I fight my fear, the less it fights back. If I can relax, fear relaxes too. 
+
+### Creativity is a muse. Treat it like one.
+- Give your creativity a name or something. Make it be a muse if that makes you feel less pressure. You’re trying to make yourself as receptive and open to the muse as possible. Keeping your mind engaged. If you’re in service to this other being this other entity, rather than responsible to yourself, I find it eases the pressure. This outside force wants to work through you, you just need to let it. It’s not about you failing to live up to your own god damn potential. 
+- It’s a subtle but important distinction between being a genius, and having a genius. When artists are burdened with the label of “genius” they run the risk of losing the ability to take themselves lightly, or to create freely. Rather than being a genius, the Greeks and Romans both believed in the idea of an external daemon of creativity, a sort of house elf you lived within the walls of your home and aided you in your efforts. The Romans didn’t believe an exceptionally gifted person was a genius, they believed they had a genius.
+- Try to present yourself to your creativity as if you are sexy — as if you are somebody worth spending time with. 
+- Take you out of yourself. 
+- ^^ I am so obsessed with the above and I’ve heard others describe it as such
+- Present yourself well. Get dressed to do the work. 
+- The work wants to be made, and it wants to be made through you.
+- good story ideas seem to come quite literally from nowhere, sailing at you right out of the empty sky: two previously unrelated ideas come together and make something new under the sun. Your job isn’t to find these ideas but to recognize them when they show up.
+- These alien creatures got into your head and just started  . . . . well, tommyknocking around in there. What you got was energy and a kind of superficial intelligence (the writer, Bobbi Anderson, creates a telepathic typewriter and an atomic hot-water heater, among other things). What you gave up in exchange was your soul. It was the best metaphor for drugs and alcohol my tired, overstressed mind could come up with.
+- At its most basic we are only discussing a learned skill, but do we not agree that sometimes the most basic skills can create things far beyond our expectations? We are talking about tools and carpentry, about words and style  . . . . but as we move along, you’d do well to remember that we are also talking about magic.
+- There is a muse, but he’s not going to come fluttering down into your writing room and scatter creative fairy-dust all over your typewriter or computer station. He lives in the ground. He’s a basement guy. You have to descend to his level, and once you get down there you have to furnish an apartment for him to live in. You have to do all the grunt labor, in other words, while the muse sits and smokes cigars and admires his bowling trophies and pretends to ignore you. Do you think this is fair? I think it’s fair. He may not be much to look at, that muse-guy, and he may not be much of a conversationalist (what I get out of mine is mostly surly grunts, unless he’s on duty), but he’s got the inspiration. It’s right that you should do all the work and burn all the midnight oil, because the guy with the cigar and the little wings has got a bag of magic. There’s stuff in there that can change your life.
+- Personal note: Playing the role of a paleontologist or archaeologist or a sculptor. Have seen those metaphors get thrown out a lot by both Gilbert and King. 
+- I want you to understand that my basic belief about the making of stories is that they pretty much make themselves.
+- I believed stories are found things, like fossils…
+- Stories are relics, part of an undiscovered pre-existing world. The writer’s job is to use the tools in his or her toolbox to get as much of each one out of the ground intact as possible. Sometimes the fossil you uncover is small; a seashell. Sometimes it’s enormous, a Tyrannosaurus Rex with all those gigantic ribs and grinning teeth.
+- No matter how good you are, no matter how much experience you have, it’s probably impossible to get the entire fossil out of the ground without a few breaks and losses. To get even most of it, the shovel must give way to more…
+- Plot is a far bigger tool, the writer’s jackhammer. You can liberate a fossil from hard ground with a jackhammer, no argument there, but you know as well as I do that the jackhammer is going to break almost as much stuff as it liberates. It’s clumsy, mechanical, anticreative. Plot is, I think, the good writer’s last resort and the dullard’…
+- A strong enough situation renders the whole question of plot moot, which is fine with me. The most interesting situations can usually be expressed as a What-if question:
+	- What if vampires invaded a small New England village? (‘Salem’s Lot)
+	- What if a policeman in a remote Nevada town went berserk and started killing everyone in sight? (Desperation)
+	- What if a cleaning woman suspected of a murder she got away with (her husband) fell under suspicion for a murder she did not commit (her employer)?
+	- What if a young mother and her son became trapped in their stalled car by a rabid dog?
+	- These were all situations which occurred to me—while showering, while driving, while taking my daily walk—and which I eventually turned into books.
+- I think that, when you read your manuscript over (and when you talk it over), you’ll see if symbolism, or the potential for it, exists. If it doesn’t, leave well enough alone. If it does, however—if it’s clearly a part of the fossil you’re working to unearth—go for it.
+- Personal note: This idea that I’m just the person uncovering things that already exist (a paleontologist uncovering fossils), than someone coming up with entirely new ideas out of thin air. 
+- People are not geniuses. They have geniuses, which is this entirely separate kind of creature or entity that lives within the walls of your home and aids you in your efforts.
+- Personal note: you can still set boundaries and guidelines. Like, this is what we think the shape thing is, and here are the qualities we really care about. But keeping the shape large early on, and whittling it down from there, like you’re excavating a dinosaur of creating a sculpture, and being careful to not be overly prescriptive too early in the process. 
+- Personal note: It’s not bringing something to life, it’s unearthing it. 
+- I read this elsewhere and it’s relevant here, need to find the original quote: It’s a sculptor who knows there is something hidden within the marble, it’s her job to find it and excavate it. 
+- Personal note: You’re just uncovering stuff that’s already there. That takes the pressure off it. You just have to be open and paying attention. 
+- Ideas need supporters, carriers, and executers to become real. 
+
+
+
+
+
+
+
+
+
 - letting the universe work through you, in your work and in your life
 - so many people describe tapping into an underlying energy + force
 - Living a creative life is to live a life of contradictions. Be open to the world, but then focused. Relax a little, but show up to do the work day-in and day-out.
@@ -11,8 +105,6 @@
 - The important message we can learn from creative people is how to find purpose and enjoyment in the chaos of life. 
 - Without a good dose of curiosity, wonder, and interest in what things are like and in how they work, it is difficult to recognize an interesting problem. Openness to experience, a fluid attention that constantly processes events in the environment, is a great advantage for recognizing potential novelty.
 
-## Get your mind right. 
-
 Each of us is born with two contradictory sets of instructions: a conservative tendency, made up of instincts for self-preservation, self-aggrandizement, and saving energy, and an expansive tendency made up of instincts for exploring, for enjoying novelty and risk - the curiosity that leads to creativity belongs to this set. 
 
 Curiosity and drive are in many ways the yin and yang that need to be combined in order to achieve something new. The first requires openness to outside stimuli, the other inner focus. The first is playful, the second serious, the first deals with objects and ideas for their own sake, the second is competitive and achievement oriented. 
@@ -20,11 +112,9 @@ Curiosity and drive are in many ways the yin and yang that need to be combined i
 A new way of doing things is discovered because the person is always open to new learning and has the drive to carry through the new idea that emerges from that learning.
 
 ### Be curious. Explore things that you enjoy. 
-- PN: Be an interested person, in the truest sense of the world. Be interested. Be curious. Ask questions. So often we shield ourselves from the most miraculous things our lives have to offer. We numb ourselves from experiencing our lives just so we can “get through” another day. 
+- PN: Be an intertested person, in the truest sense of the world. Be interested. Be curious. Ask questions. So often we shield ourselves from the most miraculous things our lives have to offer. We numb ourselves from experiencing our lives just so we can “get through” another day. 
 	- LOL. If you will not permit yourself to be driven and flogged through life, you’ll probably enjoy it more. 
-- PN: A lot of this is simply about enjoyment. Enjoying your life, enjoying your work. Not taking it so seriously, but also being very disciplined and committed to your craft at the same time. 
-- Enjoy your work. Stay as light and unburdened as possible. Taking yourself too seriously starts to close you up. The results of your work don’t have much to do with you. You can only be in charge of producing the work yourself. 
-- Living a life that is driven more strongly by curiosity than fear. 
+-- Living a life that is driven more strongly by curiosity than fear. 
 - ENJOY IT. Work had to be enjoyable on a daily basis.
 - Treat work as play. Live a rich and rounded life. 
 - The art comes from a creative imagination which is working hard and having fun.
@@ -89,45 +179,9 @@ A new way of doing things is discovered because the person is always open to new
 - PN: Your reason for doing all this cannot be to be well known or be recognized. That’s going to suck all the joy out of it, and from your day. It sounds dumb, but your driving motivation has to be purer than that — to engage with the work, to figure out your thinking on something. If that’s the driving thing, then it doesn’t matter what people think of it, or who sees it. It lifts the pressure.
 - PN: Fear happens when you attach outsize meaning to something. Can you accept that you’re not going to win a Pulitzer right out of the gate? Good. You’re not doing this for any reason but because you _enjoy it._ That’s where the magic happens. You trip when you start wondering about the destination, but the journey is where it’s at. 
 
-### Creativity is a muse. Treat it like one.
-- Give your creativity a name or something. Make it be a muse if that makes you feel less pressure. You’re trying to make yourself as receptive and open to the muse as possible. Keeping your mind engaged. If you’re in service to this other being this other entity, rather than responsible to yourself, I find it eases the pressure. This outside force wants to work through you, you just need to let it. It’s not about you failing to live up to your own god damn potential. 
-- It’s a subtle but important distinction between being a genius, and having a genius. When artists are burdened with the label of “genius” they run the risk of losing the ability to take themselves lightly, or to create freely. Rather than being a genius, the Greeks and Romans both believed in the idea of an external daemon of creativity, a sort of house elf you lived within the walls of your home and aided you in your efforts. The Romans didn’t believe an exceptionally gifted person was a genius, they believed they had a genius.
-- Try to present yourself to your creativity as if you are sexy — as if you are somebody worth spending time with. 
-- Take you out of yourself. 
-- ^^ I am so obsessed with the above and I’ve heard others describe it as such
-- Present yourself well. Get dressed to do the work. 
-- The work wants to be made, and it wants to be made through you.
-- good story ideas seem to come quite literally from nowhere, sailing at you right out of the empty sky: two previously unrelated ideas come together and make something new under the sun. Your job isn’t to find these ideas but to recognize them when they show up.
-- These alien creatures got into your head and just started  . . . . well, tommyknocking around in there. What you got was energy and a kind of superficial intelligence (the writer, Bobbi Anderson, creates a telepathic typewriter and an atomic hot-water heater, among other things). What you gave up in exchange was your soul. It was the best metaphor for drugs and alcohol my tired, overstressed mind could come up with.
-- At its most basic we are only discussing a learned skill, but do we not agree that sometimes the most basic skills can create things far beyond our expectations? We are talking about tools and carpentry, about words and style  . . . . but as we move along, you’d do well to remember that we are also talking about magic.
-- There is a muse, but he’s not going to come fluttering down into your writing room and scatter creative fairy-dust all over your typewriter or computer station. He lives in the ground. He’s a basement guy. You have to descend to his level, and once you get down there you have to furnish an apartment for him to live in. You have to do all the grunt labor, in other words, while the muse sits and smokes cigars and admires his bowling trophies and pretends to ignore you. Do you think this is fair? I think it’s fair. He may not be much to look at, that muse-guy, and he may not be much of a conversationalist (what I get out of mine is mostly surly grunts, unless he’s on duty), but he’s got the inspiration. It’s right that you should do all the work and burn all the midnight oil, because the guy with the cigar and the little wings has got a bag of magic. There’s stuff in there that can change your life.
-- Personal note: Playing the role of a paleontologist or archaeologist or a sculptor. Have seen those metaphors get thrown out a lot by both Gilbert and King. 
-- I want you to understand that my basic belief about the making of stories is that they pretty much make themselves.
-- I believed stories are found things, like fossils…
-- Stories are relics, part of an undiscovered pre-existing world. The writer’s job is to use the tools in his or her toolbox to get as much of each one out of the ground intact as possible. Sometimes the fossil you uncover is small; a seashell. Sometimes it’s enormous, a Tyrannosaurus Rex with all those gigantic ribs and grinning teeth.
-- No matter how good you are, no matter how much experience you have, it’s probably impossible to get the entire fossil out of the ground without a few breaks and losses. To get even most of it, the shovel must give way to more…
-- Plot is a far bigger tool, the writer’s jackhammer. You can liberate a fossil from hard ground with a jackhammer, no argument there, but you know as well as I do that the jackhammer is going to break almost as much stuff as it liberates. It’s clumsy, mechanical, anticreative. Plot is, I think, the good writer’s last resort and the dullard’…
-- A strong enough situation renders the whole question of plot moot, which is fine with me. The most interesting situations can usually be expressed as a What-if question:
-	- What if vampires invaded a small New England village? (‘Salem’s Lot)
-	- What if a policeman in a remote Nevada town went berserk and started killing everyone in sight? (Desperation)
-	- What if a cleaning woman suspected of a murder she got away with (her husband) fell under suspicion for a murder she did not commit (her employer)?
-	- What if a young mother and her son became trapped in their stalled car by a rabid dog?
-	- These were all situations which occurred to me—while showering, while driving, while taking my daily walk—and which I eventually turned into books.
-- I think that, when you read your manuscript over (and when you talk it over), you’ll see if symbolism, or the potential for it, exists. If it doesn’t, leave well enough alone. If it does, however—if it’s clearly a part of the fossil you’re working to unearth—go for it.
-- Personal note: This idea that I’m just the person uncovering things that already exist (a paleontologist uncovering fossils), than someone coming up with entirely new ideas out of thin air. 
-- People are not geniuses. They have geniuses, which is this entirely separate kind of creature or entity that lives within the walls of your home and aids you in your efforts.
-- Personal note: you can still set boundaries and guidelines. Like, this is what we think the shape thing is, and here are the qualities we really care about. But keeping the shape large early on, and whittling it down from there, like you’re excavating a dinosaur of creating a sculpture, and being careful to not be overly prescriptive too early in the process. 
-- Personal note: It’s not bringing something to life, it’s unearthing it. 
-- I read this elsewhere and it’s relevant here, need to find the original quote: It’s a sculptor who knows there is something hidden within the marble, it’s her job to find it and excavate it. 
-- Personal note: You’re just uncovering stuff that’s already there. That takes the pressure off it. You just have to be open and paying attention. 
-- Ideas need supporters, carriers, and executers to become real. 
 
-### Managing the fear. 
-- PN: The fear will always exist. You just need to learn to manage it. To treat it as a visitor who you can invite inside or not. To be aware that it is not YOU. It is something else entirely. 
-- Don’t let your fear control you. Don’t stop yourself. 
-- Don’t be afraid to make mistakes, or waste your time. Do a ton of worthless testing. Do things just for the sake of learning them, even if they don’t ultimately take you anywhere. The most important thing is to stay engaged and excited by the creative process. (is this actually the most important thing?). Don’t be overly hard on yourself in the early stages of a project.
-- The majority of people in every culture invest their lives in projects that are defined by their society. They pay attention to what others pay attention to, they experience what others experience. They go to school and learn what should be learned, they work at whatever job is available, they marry and have children according to the local customs. It is difficult to see how it could be otherwise. Would it be possible to have a stable, predictable life if most people were not conformists? At the same time, a culture can only evolve if a few souls do not play by the usual rules. The men and women we studied made up their own rules as they went along, combining luck with the singleness of their purpose, until they were ablate fashion a “life theme” that expressed their unique vision while also allowing them to make a living.
-- I decided that I would need to build an expansive enough interior life that my fear and my creativity could peacefully coexist. I make all that space for fear. It seems to me that the less I fight my fear, the less it fights back. If I can relax, fear relaxes too. 
+
+
 
 ## Get started.
 - Take the first practical step.
